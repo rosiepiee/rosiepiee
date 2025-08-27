@@ -6,7 +6,7 @@ I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my
 
 I love scenecore AGHH!!!! I usually listen to 6arelyhuman and Asteria... (plus others!) 🥺
 
-Dni list is basic, just don't be a weird b!tch. this includes pedos, racists, trans/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??) Yo Zelda, unfollow me bro... I don't support pedos! You literally have dni danganronpa fans on your profile why did you follow me.. </3
+Dni list is basic, just don't be a weird b!tch. this includes pedos, racists, trans/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??)
 
 I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed in strawpages!)
 
