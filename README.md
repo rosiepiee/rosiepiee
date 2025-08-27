@@ -18,7 +18,7 @@ Away- Afk, away from my computer, leave a whisp if you need anything!
 
 (I don't roleplay as it makes me uncomfortable, pls don't ask)
 
-Amy Rose and Mikan kinnie btw..
+Amy Rose, Sonia Nevermind, Sayaka Maizono, and Mikan Tsumiki kinnie btw..
 
 Don't flirt.. even as a joke, I'm happily taken, thank you.
 
