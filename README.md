@@ -27,4 +27,6 @@ Don't flirt.. even as a joke, I'm happily taken, thank you.
 
 <img width="500" height="108" alt="image" src="https://github.com/user-attachments/assets/c6e4e34e-5a5b-41a6-9f5a-02ace68551fb" />
 
-<img width="415" height="893" alt="image" src="https://github.com/user-attachments/assets/5e16df8f-08d1-42fa-8b6b-09292901fd16" />
+<img width="2500" height="1200" alt="image" src="https://github.com/user-attachments/assets/5b7df416-eb83-46ed-81ba-d33f365767e8" />
+
+
