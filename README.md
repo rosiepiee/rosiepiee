@@ -14,7 +14,7 @@ Online/Looking for chat- HIII!!!
 
 Busy- Usually chilling and I don't wanna be bothered (Unless you're my bf, sis, or friends!)
 
-Away- Afk or busy.. leave a whisp if you need anything!
+Away- Afk or just doing something.. leave a whisp if you need anything!
 
 (I don't roleplay as it makes me uncomfortable, pls don't ask)
 
