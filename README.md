@@ -6,19 +6,19 @@ I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my
 
 I love scenecore AGHH!!!! I usually listen to 6arelyhuman and Asteria... (plus others!) 🥺
 
-Dni list is basic, just don't be a weird b!tch. this includes pedos, racists, trans/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??)
+Dni list is basic, just don't be a weird b!tch. this includes pedos, racists, transphobic/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??)
 
 I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed in strawpages!)
 
-Online/Looking for chat- HIII!!!
+Looking for chat- HIII!!!
 
-Busy- Usually chilling and I don't wanna be bothered (Unless you're my bf, sis, or friends!)
+Busy- Usually chilling and I don't wanna be bothered (Unless you're my bf, sis, or friends!) If you come up to me and idk you, expect little to no replies, no hard feelings! <3
 
 Away- Afk or just doing something.. leave a whisp if you need anything!
 
 (I don't roleplay as it makes me uncomfortable, pls don't ask)
 
-Amy Rose, Sonia Nevermind, Sayaka Maizono, and Mikan Tsumiki kinnie btw..
+Amy Rose, Sonia Nevermind, Sayaka Maizono, and Mikan Tsumiki (main) kinnie btw..
 
 Don't flirt.. even as a joke, I'm happily taken, thank you.
 
