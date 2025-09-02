@@ -13,7 +13,7 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed 
 
 Looking for chat- HIII!!!
 
-Busy- Usually chilling and I don't wanna be bothered (Unless you're my bf, sis, or friends!) If you come up to me and idk you, expect little to no replies, no hard feelings! <3 (I realized this is hard for me cause I'm nice so I MIGHT talk to you depeneding on your vibe but I mainly wanna chill.. 😭)
+Busy- Usually chilling and I don't wanna be bothered (Unless you're my bf, sis, or friends!) If you come up to me and idk you, expect little to no replies, no hard feelings! <3 (I realized this is hard for me cause I'm nice so I MIGHT talk to you depending on your vibe but I mainly wanna chill.. 😭)
 
 Away- Afk or just doing something.. leave a whisp if you need anything! ^_^
 
