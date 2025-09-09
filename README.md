@@ -1,7 +1,8 @@
 HI!!! I'm Rose! A silly girl who yaps and draws a lot.. if you're reading this, you probably saw me on ponytown so, HI! I love making new friends so I don't mind if you come up to chat! 
 
 
-I don't really care what pronouns you use for me, I prefer she/her but it's not a bother if you want to use he/they, I don't mind at all! ^_^
+I don't really care what pronouns you use for me. ^_^
+
 I'm usually in the Sonic area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
 I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! (He's so talented, omg 🥺❤️) 
 
@@ -19,7 +20,7 @@ Away- Afk or just doing something.. leave a whisp if you need anything! ^_^
 
 (I don't roleplay as it makes me uncomfortable, pls don't ask)
 
-Amy Rose, Sonia Nevermind (main.. plus comfort character), Sayaka Maizono, and Mikan Tsumiki kinnie btw..
+Amy Rose, Shuichi Saihara, and Sonia Nevermind kinnie!!!!
 
 Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!!
 
