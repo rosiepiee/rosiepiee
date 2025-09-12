@@ -1,7 +1,7 @@
 HI!!! I'm Rose! A silly girl who yaps and draws a lot.. if you're reading this, you probably saw me on ponytown so, HI! I love making new friends so I don't mind if you come up to chat! 
 
 
-I don't know if this makes sny sense but I use he/any pronouns!! I'm aware that I'm a girl, but I'd prefer he/him! Any works though! ^_^
+I don't know if this makes any sense but I use he/any pronouns!! I'm aware that I'm a girl, but I'd prefer he/him! Any works though! ^_^
 
 I'm usually in the Sonic area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
 I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! (He's so talented, omg 🥺❤️) 
