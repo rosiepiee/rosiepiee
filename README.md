@@ -1,7 +1,7 @@
 HI!!! I'm Rose! A silly girl who yaps and draws a lot.. if you're reading this, you probably saw me on ponytown so, HI! I love making new friends so I don't mind if you come up to chat! 
 
 
-I don't really care what pronouns you use for me. ^_^
+I don't know if this makes sny sense but I use he/any pronouns!! I'm aware that I'm a girl, but I'd prefer he/him! Any works though! ^_^
 
 I'm usually in the Sonic area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
 I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! (He's so talented, omg 🥺❤️) 
@@ -12,11 +12,7 @@ Dni list is basic, just don't be a weird b!tch. this includes pedos, racists, tr
 
 I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed in strawpages!)
 
-Looking for chat- HIII!!!
-
-Busy- Usually chilling and I don't wanna be bothered (Unless you're my bf, sis, or friends!) If you come up to me and idk you, expect little to no replies, no hard feelings! <3 (I realized this is hard for me cause I'm nice so I MIGHT talk to you depending on your vibe but I mainly wanna chill.. 😭)
-
-Away- Afk or just doing something.. leave a whisp if you need anything! ^_^
+99.9% of the time, I'll be on busy. I love making new friends, especially with similar interests but I'm usually on pt to chill with my friends and boyfriend. You can send whispers but just know I can be pretty awkward and can miss em at times. When I'm afk (I'll be on away) You can still send me em and I'll get em when I'm back! ^_^
 
 (I don't roleplay as it makes me uncomfortable, pls don't ask)
 
