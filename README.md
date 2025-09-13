@@ -16,7 +16,7 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed 
 
 (I don't roleplay as it makes me uncomfortable, pls don't ask)
 
-Amy Rose, Shuichi Saihara, and Sonia Nevermind kinnie!!!!
+Amy Rose, Shuichi Saihara, Gundham Tanaka, and Sonia Nevermind kinnie!!!!
 
 Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!!
 
