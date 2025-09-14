@@ -3,7 +3,7 @@ HI!!! I'm Rose! A silly girl who yaps and draws a lot.. if you're reading this, 
 
 I don't know if this makes any sense but I use he/any pronouns!! I'm aware that I'm a girl, but I'd prefer he/him! Any works though! ^_^
 
-I'm usually in the Sonic area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
+I'm usually in the Danganronpa area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
 I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! (He's so talented, omg 🥺❤️) 
 
 I love scenecore AGHH!!!! I usually listen to 6arelyhuman and Asteria... (plus others!) 
@@ -14,9 +14,11 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed 
 
 99.9% of the time, I'll be on busy. I love making new friends, especially with similar interests but I'm usually on pt to chill with my friends and boyfriend. You can send whispers but just know I can be pretty awkward and can miss em at times. When I'm afk (I'll be on away) You can still send me em and I'll get em when I'm back! ^_^
 
-(I don't roleplay as it makes me uncomfortable, pls don't ask)
+(I don't really roleplay as it makes me uncomfortable, pls don't ask)
 
-Amy Rose, Shuichi Saihara, Gundham Tanaka, and Sonia Nevermind kinnie!!!!
+Amy Rose, Shuichi Saihara, Gundham Tanaka, Sonia Nevermind, and Kokichi Ouma kinnie!!!!
+
+Saimota, Oumota, Soudam, and Sounia (comfort ship) #1 fan!! huzzah! (I know the last one is toxic but it's a comfort ship for me...)
 
 Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!!
 
