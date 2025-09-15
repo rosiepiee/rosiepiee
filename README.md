@@ -1,30 +1,29 @@
-HI!!! I'm Rose! A silly girl who yaps and draws a lot.. if you're reading this, you probably saw me on ponytown so, HI! I love making new friends so I don't mind if you come up to chat! 
+HI!!! I'm Rose! A silly goober who yaps and draws a lot.. if you're reading this, you probably saw me on ponytown so, HI! I love making new friends so I don't mind if you come up to chat! 
 
 
-I don't know if this makes any sense but I use he/any pronouns!! I'm aware that I'm a girl, but I'd prefer he/him! Any works though! ^_^
-
+I use he/she pronouns!! ^_^
 I'm usually in the Danganronpa area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
 I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! (He's so talented, omg 🥺❤️) 
 
 I love scenecore AGHH!!!! I usually listen to 6arelyhuman and Asteria... (plus others!) 
 
-Dni list is basic, just don't be a weird b!tch. this includes pedos, racists, transphobic/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??)
+Dni list is basic, just don't be insanely weird.. this includes pedos, racists, transphobic/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??) I block freely if I get uncomfortable....
 
-I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed in strawpages!)
+I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more! (Listed in strawpages!)
 
-99.9% of the time, I'll be on busy. I love making new friends, especially with similar interests but I'm usually on pt to chill with my friends and boyfriend. You can send whispers but just know I can be pretty awkward and can miss em at times. When I'm afk (I'll be on away) You can still send me em and I'll get em when I'm back! ^_^
+99.9% of the time, I'll be on busy. I do love making new friends at times, especially with similar interests but I'm usually on pt to chill with my friends and boyfriend. You can send whispers but just know I can be pretty awkward and can miss em at times. When I'm afk (I'll be on away) You can still send me em and I'll get em when I'm back! ^_^
 
 (I don't really roleplay as it makes me uncomfortable, pls don't ask)
 
-Amy Rose and Kokichi Ouma kinnie!!!!
+Amy Rose, Kokichi Ouma, and Chihiro Fujisaki kinnie!!!!
 
 I LOVE OUMOTA, I LOVE OUMOTA SM!!!!!
 
-Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!!
+Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!! I LOVE MY BF SM!!!!!!! MY BABYYYYYYYY!!!
 
-"This is nothing to LOL about..!"
 
-<img width="183" height="180" alt="image" src="https://github.com/user-attachments/assets/b7c2664b-42fd-41b0-916f-4a45b4e3c9e5" />
+<img width="474" height="474" alt="image" src="https://github.com/user-attachments/assets/d65cc53c-4e68-4137-bbf0-5f9ac51d68c6" />
+<img width="197" height="344" alt="image" src="https://github.com/user-attachments/assets/4a640ae6-d3ce-42f1-9b38-de39d5c77a22" />
 
 
 <img width="1194" height="245" alt="image" src="https://github.com/user-attachments/assets/49e8a641-bdf1-400c-9372-e3df10c4cc79" />
