@@ -16,9 +16,9 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more. (Listed 
 
 (I don't really roleplay as it makes me uncomfortable, pls don't ask)
 
-Amy Rose, Shuichi Saihara, Gundham Tanaka, Sonia Nevermind, and Kokichi Ouma kinnie!!!!
+Amy Rose and Kokichi Ouma kinnie!!!!
 
-Saimota, Oumota, Soudam, and Sounia (comfort ship) #1 fan!! huzzah! (I know the last one is toxic but it's a comfort ship for me...)
+I LOVE OUMOTA, I LOVE OUMOTA SM!!!!!
 
 Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!!
 
