@@ -2,6 +2,7 @@ HI!!! I'm Rose! A silly goober who yaps and draws a lot.. if you're reading this
 
 
 I use he/she pronouns!! ^_^
+
 I'm usually in the Danganronpa area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
 I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! (He's so talented, omg 🥺❤️) 
 
