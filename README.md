@@ -15,7 +15,7 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more! (Listed 
 
 (I don't really roleplay as it makes me uncomfortable, pls don't ask)
 
-Amy Rose, Kokichi Ouma, and Chihiro Fujisaki kinnie!!!!
+Amy Rose, Sonia Nevermind, Kokichi Ouma, and Chihiro Fujisaki kinnie!!!!
 
 I LOVE OUMOTA, I LOVE OUMOTA SM!!!!!
 
