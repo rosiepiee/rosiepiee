@@ -14,9 +14,9 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more! (Listed 
 
 99.9% of the time, I'll be on busy. I do love making new friends at times, especially with similar interests but I'm usually on pt to chill with my friends and boyfriend. You can send whispers but just know I can be pretty awkward and can miss em at times. When I'm afk (I'll be on away) You can still send me em and I'll get em when I'm back! ^_^
 
-(I don't really roleplay as it makes me uncomfortable, pls don't ask)
+(I don't really roleplay as it makes me uncomfortable, pls don't ask. I also don't join random party invites as I'm in one with my sister and boyfriend, so no, I'm not helping you with your island, sorry..)
 
-Amy Rose, Sonia Nevermind, Kokichi Ouma, and Chihiro Fujisaki kinnie!!!!
+Amy Rose, Sonia Nevermind, Kokichi Ouma (main), and Chihiro Fujisaki kinnie!!!!
 
 I LOVE OUMOTA, I LOVE OUMOTA SM!!!!!
 
