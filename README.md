@@ -16,9 +16,11 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more! (Listed 
 
 (I don't really roleplay as it makes me uncomfortable, pls don't ask. I also don't accept random party invites as I'm in one with my sister and boyfriend, so no, I'm not helping you with your island, sorry..)
 
-Amy Rose, Sonia Nevermind, Kokichi Ouma (main), and Chihiro Fujisaki kinnie!!!!
+Amy Rose, Sonia Nevermind, Kokichi Ouma, and Chihiro Fujisaki (main) kinnie!!!!
 
 I LOVE OUMOTA, I LOVE OUMOTA SM!!!!!
+
+I love Kazuichi Souda, probably his biggest fan.. GULP!
 
 Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!! I LOVE MY BF SM!!!!!!! MY BABYYYYYYYY!!!
 
