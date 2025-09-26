@@ -30,7 +30,6 @@ Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!! I LOVE MY BF SM!!!!!!! M
 
 
 <img width="474" height="474" alt="image" src="https://github.com/user-attachments/assets/d65cc53c-4e68-4137-bbf0-5f9ac51d68c6" />
-<img width="197" height="344" alt="image" src="https://github.com/user-attachments/assets/4a640ae6-d3ce-42f1-9b38-de39d5c77a22" />
 
 
 <img width="1194" height="245" alt="image" src="https://github.com/user-attachments/assets/49e8a641-bdf1-400c-9372-e3df10c4cc79" />
