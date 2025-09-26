@@ -6,7 +6,7 @@ I'm the ultimate programmer! (as well as the ultimate yapper..)
 
  Pronouns: He/Him or She/Her
  
-You'll usually see me either in the Danganronpa area or outside the bakery with my sister, my friends, or my bf! I'm nowhere else unless I'm in my island!
+You'll either see me either in the Danganronpa area or outside the bakery with my sister, my friends, or my bf! I'm nowhere else unless I'm in my island!
 
 I love anything scenecore!! ^_^
 
