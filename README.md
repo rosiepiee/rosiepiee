@@ -1,26 +1,30 @@
-HI!!! I'm Rose! A silly goober who yaps and draws a lot.. if you're reading this, you probably saw me on ponytown so, HI! I love making new friends so I don't mind if you come up to chat! 
+HIIII!!! 🌹 
 
+Rose/Rosie/Chihiro/Amy/Other kins <3
 
-I use he/she pronouns!! ^_^
+I'm the ultimate programmer! (as well as the ultimate yapper..)
 
-I'm usually in the Danganronpa area or chilling near the bakery with my boyfriend! (I LOVE HIM SO MUCH!!!) 
-I'm in a lot of fandoms so if you wanna know, check out my strawpages made by my amazing bf!! (He's so talented, omg 🥺❤️) 
+ Pronouns: He/Him or She/Her
+ 
+You'll usually see me either in the Danganronpa area or outside the bakery with my sister, my friends, or my bf! I'm nowhere else unless I'm in my island!
 
-I love scenecore AGHH!!!! I usually listen to 6arelyhuman and Asteria... (plus others!) 
+I love anything scenecore!! ^_^
 
-Dni list is basic, just don't be insanely weird.. this includes pedos, racists, transphobic/homophobic people, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??) I block freely if I get uncomfortable....
+Dni list is common sense.. pedos, racists, transphobes/homophobes, proshippers, and so on. Idgaf about what you like unless it's BAD... (Why did I get dissed on for liking Bluey? "Dni if bluey fan.." WHAT DID I DO??) I block freely if I get uncomfortable....
 
-I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more! (Listed in strawpages!)
+I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more! (Listed in strawpages made by my baby ❤️!!)
 
 99.9% of the time, I'll be on busy. I do love making new friends at times, especially with similar interests but I'm usually on pt to chill with my friends and boyfriend. You can send whispers but just know I can be pretty awkward and can miss em at times. When I'm afk (I'll be on away) You can still send me em and I'll get em when I'm back! ^_^
 
-(I don't really roleplay as it makes me uncomfortable, pls don't ask. I also don't accept random party invites as I'm in one with my sister and boyfriend, so no, I'm not helping you with your island, sorry..)
+(I don't really roleplay as it makes me uncomfortable, pls don't ask. RARE times I'll act as my character but I don't full on roleplay. I also don't accept random party invites as I'm in one with my sister and boyfriend, so no, I'm not helping you with your island, sorry..)
 
-Amy Rose, Sonia Nevermind, Kokichi Ouma, and Chihiro Fujisaki (main) kinnie!!!!
+My main kins are Amy Rose and Chihiro Fujisaki but I also kin Sonia Nevermind, Pinkie Pie, Knuckles, and Kokichi Ouma!
 
-I LOVE OUMOTA, I LOVE OUMOTA SM!!!!!
+I LOVE OUMOTA, I LOVE OUMOTA SM!!!!! ISHIMONDO TOO!!!!!
 
 I love Kazuichi Souda, probably his biggest fan.. GULP!
+
+I'm the only Kazuichi x Chihiro shipper I fear.. pls don't judge as it's a comfort ship for me ☹️ 
 
 Don't flirt.. even as a joke pls..... I LOVE MY BF!!!!! I LOVE MY BF SM!!!!!!! MY BABYYYYYYYY!!!
 
