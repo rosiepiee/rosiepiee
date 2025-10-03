@@ -1,10 +1,10 @@
 HIIII!!! 🌹 
 
-Rose/Rosie/Chihiro/Amy/Other kins <3
+Rose/Rosie/Chihiro/Amy
 
 I'm the ultimate programmer! (as well as the ultimate yapper..)
 
- Pronouns: He/Him or She/Her
+ Pronouns: He/Him 
  
 You'll either see me in the Danganronpa area or outside the bakery with my sister, my friends, or my bf! I'm nowhere else unless I'm in my island!
 
@@ -18,7 +18,7 @@ I love Sonic, Danganronpa, MLP, Mortal Kombat, TWDG, Parappa, and more! (Listed 
 
 (I don't really roleplay as it makes me uncomfortable, pls don't ask. RARE times I'll act as my character but I don't full on roleplay. I also don't accept random party invites as I'm in one with my sister and boyfriend, so no, I'm not helping you with your island, sorry..)
 
-My main kins are Amy Rose and Chihiro Fujisaki but I also kin Sonia Nevermind, Pinkie Pie, Knuckles, and Kokichi Ouma!
+My kins are Amy Rose and Chihiro Fujisaki!!! (heavy Chihiro kinnie) 
 
 I LOVE OUMOTA, I LOVE OUMOTA SM!!!!! ISHIMONDO TOO!!!!!
 
