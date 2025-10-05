@@ -33,5 +33,12 @@ Pls.. for the love of god.... don't flirt.. even if that's your humor and you're
 
 I can be too hyper at times... if you ever need me to tone it down, pls let me know as I cannot read minds... 
 
-<img width="834" height="768" alt="image" src="https://github.com/user-attachments/assets/ece43795-1620-4d50-8a95-7312bab13a91" />
+You're more than welcome to whisper me (anything rude or just flat out creepy will get you blocked) HOWEVER, I might not see it right away and depending what it is I might be awkward but I don't bite! I love to yap!
+
+<img width="233" height="139" alt="image" src="https://github.com/user-attachments/assets/b6ebe31f-2c6d-4ae4-9fbc-97a15cb830f9" /> me and my bf if you even care...
+
+MAN, IDK WHAT TO ADD I'LL ADD MORE IF I NEED TO, PEACE.
+
+<img width="512" height="427" alt="image" src="https://github.com/user-attachments/assets/f0e997e5-3ec4-4146-8f10-1c0077d243e1" />
+
 
