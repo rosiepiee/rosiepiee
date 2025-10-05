@@ -1,7 +1,7 @@
 <img width="250" height="367" alt="image" src="https://github.com/user-attachments/assets/58e509a8-2855-4c28-8a87-82e2351781f3" />
 
 
-YO!! WHAT'S UP I'M ROSE!!! A certified yapper and rage baiter....
+YO!! WHAT'S UP, I'M ROSE!!! A certified yapper and rage baiter....
 
 THE FASTEST BIRD AROUND!1!1
 
