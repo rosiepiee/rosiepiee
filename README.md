@@ -7,7 +7,7 @@ THE FASTEST BIRD AROUND!1!1
 
 <img width="150" height="138" alt="image" src="https://github.com/user-attachments/assets/62b141c0-72bf-4c06-9c7a-1a2a64782be2" />
 
-I'm in LOVE with my boyfriend like.. the huggest crush.... AGHHH!!
+I'm in LOVE with my boyfriend like.. the biggest crush.... AGHHH!!
 
 He/Him pronouns pls!! That would be so tubular if you respected it, heh!
 
