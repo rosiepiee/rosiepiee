@@ -9,7 +9,7 @@ THE FASTEST BIRD AROUND!1!1
 
 I'm in LOVE with my boyfriend like.. the biggest crush.... AGHHH!!
 
-He/Him pronouns pls!! That would be so tubular if you respected it, heh!
+I use she/he pronouns!!
 
 <img width="182" height="182" alt="image" src="https://github.com/user-attachments/assets/c7159281-6460-42bf-963b-91a84ab784c9" />
 
