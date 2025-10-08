@@ -1,44 +1,34 @@
-<img width="250" height="367" alt="image" src="https://github.com/user-attachments/assets/58e509a8-2855-4c28-8a87-82e2351781f3" />
+HI! I'm Rose! It's nice to meet you!
+
+If you're reading this, you found me on ponytown!!
+
+<img width="308" height="499" alt="image" src="https://github.com/user-attachments/assets/4705d1e7-62c2-4a2d-acd4-f44deb815499" />
 
 
-YO!! WHAT'S UP, I'M ROSE!!! A certified yapper and rage baiter....
+I am a huge fan of Sonic and Danganronpa!!! I have a ton of skins with em....
 
-THE FASTEST BIRD AROUND!1!1
+Besides that, I also like TWDG, Mortal Kombat, MLP, Parappa, and Creepypastas!! 
 
-<img width="150" height="138" alt="image" src="https://github.com/user-attachments/assets/62b141c0-72bf-4c06-9c7a-1a2a64782be2" />
+<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/82a5178b-8256-443b-a97f-11cb9290e995" />
 
-I'm in LOVE with my boyfriend like.. the biggest crush.... AGHHH!!
+If it isn't obvious I kin Chiaki and Chihiro from danganronpa... EXPECT THIS TO BE FILLED WITH EM 
 
-I use she/he pronouns!!
+I LOVE MY BF SO SO SO SO MUCH HE MAKES ME SO HAPPY!!!! I LOVE MY BABYYYY!!!
 
-<img width="182" height="182" alt="image" src="https://github.com/user-attachments/assets/c7159281-6460-42bf-963b-91a84ab784c9" />
+<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/e5fbc295-78dc-4707-9749-a8f81136dbb1" />
 
-I LOVE Sonic, Danganronpa, MLP, TWDG, and Mortal Kombat!! 
+I use she/he pronouns! Just to let you know! :)
 
-<img width="272" height="308" alt="image" src="https://github.com/user-attachments/assets/65518e01-66ef-46f5-8f3e-e151cf6d8477" />
+I can be alone at times but other times I'm with my sister, friends, or my bf! Make me or any of em uncomfy is an instablock.. SORRY! You can come up to me though idm! (This depends with my friends/bf)
 
-You'll SOMETIMES see me chilling alone but I usually play with my sister, my friends, or my boyfriend! You CAN come up to us but we will PROBABLY be very awkward or nervous depending on the vibe.
-
-Pls, do NOT send me party invites and pls don't ask.. I'm already in one and I'm not joining and or helping with your island.. thank you.
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3167d6f0-e85a-4f73-b08c-649a95d4377a" />
+<img width="480" height="280" alt="image" src="https://github.com/user-attachments/assets/c4a38a56-51c6-4695-9409-68d8915b84fc" />
 
 
-I have too many kins to list honestly..
+I block freely simply if I'm uncomfy by your skin or other reasons, so sorry!
 
-I block freely and dni list is so common sense I'm not even gonna list em. 
+Dni list is very common sense... not listing it.
 
-Pls.. for the love of god.... don't flirt.. even if that's your humor and you're joking.. I am happily taken and it makes me uncomfortable when other people flirt that ISN'T my boyfriend... thank you.
+ALSO, pls don't flirt with me.. even if that's your humor, If you continue after I tell you to stop.. you will be getting blocked. I am HAPPILY taken...
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/ce62ce67-cd76-4fa3-8834-f32b679b4b6f" />
-
-I can be too hyper at times... if you ever need me to tone it down, pls let me know as I cannot read minds... 
-
-You're more than welcome to whisper me (anything rude or just flat out creepy will get you blocked) HOWEVER, I might not see it right away and depending what it is I might be awkward but I don't bite! I love to yap!
-
-<img width="233" height="139" alt="image" src="https://github.com/user-attachments/assets/b6ebe31f-2c6d-4ae4-9fbc-97a15cb830f9" /> me and my bf if you even care...
-
-MAN, IDK WHAT TO ADD I'LL ADD MORE IF I NEED TO, PEACE.
-
-<img width="512" height="427" alt="image" src="https://github.com/user-attachments/assets/f0e997e5-3ec4-4146-8f10-1c0077d243e1" />
-
+<img width="960" height="560" alt="image" src="https://github.com/user-attachments/assets/1f871a74-1539-4a87-a618-bf037da6bd13" />
 
