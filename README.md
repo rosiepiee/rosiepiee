@@ -32,3 +32,9 @@ ALSO, pls don't flirt with me.. even if that's your humor, If you continue after
 
 <img width="960" height="560" alt="image" src="https://github.com/user-attachments/assets/1f871a74-1539-4a87-a618-bf037da6bd13" />
 
+
+I tend to overthink and panic easily.. so i'm sorry if I get quiet! (I usually talk in party anyway..) ALSO PLS DON'T INVITE ME TO YOUR PARTY I'M RESPECTFULLY NOT INTERESTED.
+
+<img width="640" height="370" alt="image" src="https://github.com/user-attachments/assets/f50dadf8-2fb0-48dc-8d2f-1a09219b728e" />
+
+IDK!!! BYE!
