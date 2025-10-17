@@ -41,10 +41,11 @@ Pls dni with me if it's just for drama or to ragebait me.. it already happened a
 
 I DO LIKE TO MAKE FRIENDS THOUGH!! I can be too hyper at times and I also tend to apologize and panic over everything.. OOPS! (´⊙ω⊙`)ᵒᵐᵍᵎᵎᵎ
 
-<img width="474" height="544" alt="image" src="https://github.com/user-attachments/assets/eb5a1698-d600-4647-80dd-559525313a51" /> me and my bestie Cream! (HI BLISS!!!) (´・ω・`)
+<img width="474" height="544" alt="image" src="https://github.com/user-attachments/assets/eb5a1698-d600-4647-80dd-559525313a51" /> me and my bestie Cream! (HI BLISS!!!) (´・ω・`) 
 
 
 
+<img width="236" height="224" alt="image" src="https://github.com/user-attachments/assets/66abf7a0-7028-44e6-9dca-60addbfb47ff" />
 
 
 <img width="400" height="291" alt="image" src="https://github.com/user-attachments/assets/481da7ca-7b75-471a-b2a9-01d76a92c802" />
