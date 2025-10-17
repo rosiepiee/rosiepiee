@@ -1,40 +1,21 @@
-HI! I'm Rose! It's nice to meet you!
+˙ . ꒷ 🍰 . 𖦹˙—˙ . ꒷ 🍰 . 𖦹˙—
+HI! I'm Rose! A goober!!
 
-If you're reading this, you found me on ponytown!!
+An Amy Rose kinnie... I HAVE MORE SHE'S JUST THE MAIN ONE! (˶˃ ᵕ ˂˶)
 
-<img width="308" height="499" alt="image" src="https://github.com/user-attachments/assets/4705d1e7-62c2-4a2d-acd4-f44deb815499" />
+<img width="820" height="823" alt="image" src="https://github.com/user-attachments/assets/b22240c5-c416-4e1e-9a1e-621efcc1e07f" />
 
+I use she/her and he/him pronouns! ₍^. .^₎⟆
 
-I am a huge fan of Sonic and Danganronpa!!! I have a ton of skins with em....
-
-Besides that, I also like TWDG, Mortal Kombat, MLP, Parappa, and Creepypastas!! 
-
-<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/82a5178b-8256-443b-a97f-11cb9290e995" />
-
-If it isn't obvious I kin Chiaki and Chihiro from danganronpa... EXPECT THIS TO BE FILLED WITH EM 
-
-I LOVE MY BF SO SO SO SO MUCH HE MAKES ME SO HAPPY!!!! I LOVE MY BABYYYY!!!
-
-<img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/e5fbc295-78dc-4707-9749-a8f81136dbb1" />
-
-I use she/he pronouns! Just to let you know! :)
-
-I can be alone at times but other times I'm with my sister, friends, or my bf! Make me or any of em uncomfy is an instablock.. SORRY! You can come up to me though idm! (This depends with my friends/bf)
-
-<img width="480" height="280" alt="image" src="https://github.com/user-attachments/assets/c4a38a56-51c6-4695-9409-68d8915b84fc" />
+<img width="383" height="500" alt="image" src="https://github.com/user-attachments/assets/ff72ff9b-62e1-4bb4-aa04-40117ad33f3a" />
 
 
-I block freely simply if I'm uncomfy by your skin or other reasons, so sorry!
+I am a very big Sonic and Danganronpa fan but I also love MLP. TWDG, Mortal Kombat, Parappa, and Creepypastas! 
 
-Dni list is very common sense... not listing it.
+I am a huge nerd when it comes to anything exe related btw...
 
-ALSO, pls don't flirt with me.. even if that's your humor, If you continue after I tell you to stop.. you will be getting blocked. I am HAPPILY taken...
+<img width="736" height="736" alt="image" src="https://github.com/user-attachments/assets/cbe891e3-3ad1-4baa-91a6-79d001882a8c" />
 
-<img width="960" height="560" alt="image" src="https://github.com/user-attachments/assets/1f871a74-1539-4a87-a618-bf037da6bd13" />
+I'm TAKEN!! I LOVE MY BOYFRIEND SM!!!! AUGHHH!! >⩊< 6/4!!!
 
-
-I tend to overthink and panic easily.. so i'm sorry if I get quiet! (I usually talk in party anyway..) ALSO PLS DON'T INVITE ME TO YOUR PARTY I'M RESPECTFULLY NOT INTERESTED.
-
-<img width="640" height="370" alt="image" src="https://github.com/user-attachments/assets/f50dadf8-2fb0-48dc-8d2f-1a09219b728e" />
-
-IDK!!! BYE!
+<img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/77a7a627-ae23-4b82-a249-201e52cc891c" />
