@@ -13,8 +13,6 @@ I am a very big Sonic and Danganronpa fan but I also love MLP. TWDG, Mortal Komb
 
 I am a huge nerd when it comes to anything exe related btw...
 
-<img width="466" height="632" alt="image" src="https://github.com/user-attachments/assets/722a3a8a-e916-4488-b225-f3c41b554ecc" />
-
 I'm TAKEN!! I LOVE MY BOYFRIEND SM!!!! AUGHHH!! >⩊< 6/4!!!
 
 <img width="600" height="600" alt="image" src="https://github.com/user-attachments/assets/77a7a627-ae23-4b82-a249-201e52cc891c" /> me and my husband if you care...
