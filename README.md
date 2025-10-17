@@ -36,7 +36,7 @@ I HAVE A BF AND I'M HAPPILY TAKEN!!! PLS NO FLIRTING, EVEN AS A JOKE. (¬`‸´�
 
 Pls dni with me if it's just for drama or to ragebait me.. it already happened a couple of times and YEAH! I'll block if necessary.. ( ;´ - `;) (dni list is common sense, not listing it)
 
-<img width="640" height="480" alt="image" src="https://github.com/user-attachments/assets/c377ed70-7cb4-49cf-b3ea-497eddea4ae6" />
+<img width="236" height="226" alt="image" src="https://github.com/user-attachments/assets/b1b27e91-2661-45ee-882e-3f5f74b1c53f" />
 
 
 I DO LIKE TO MAKE FRIENDS THOUGH!! I can be too hyper at times and I also tend to apologize and panic over everything.. OOPS! (´⊙ω⊙`)ᵒᵐᵍᵎᵎᵎ
@@ -44,8 +44,6 @@ I DO LIKE TO MAKE FRIENDS THOUGH!! I can be too hyper at times and I also tend t
 <img width="474" height="544" alt="image" src="https://github.com/user-attachments/assets/eb5a1698-d600-4647-80dd-559525313a51" /> me and my bestie Cream! (HI BLISS!!!) (´・ω・`)
 
 
-
-<img width="309" height="479" alt="image" src="https://github.com/user-attachments/assets/bfba184f-d566-4f13-8f26-899547cfaf38" /> Thinking about him probably...
 
 
 
