@@ -30,15 +30,22 @@ I LOVE SONAMY SM THEY'RE LITERALLY ME AND MY HUSBAND!! (Other Sonic's iwc.. YOU 
 
 I HAVE A BF AND I'M HAPPILY TAKEN!!! PLS NO FLIRTING, EVEN AS A JOKE. (¬`‸´¬)
 
+<img width="640" height="480" alt="image" src="https://github.com/user-attachments/assets/5c6ddf41-a87c-4101-9858-65f3cdffaab7" />
 
-<img width="474" height="355" alt="image" src="https://github.com/user-attachments/assets/6ec6d310-2793-41cc-9e96-1aa9dc3f3ee1" />
 
 
 Pls dni with me if it's just for drama or to ragebait me.. it already happened a couple of times and YEAH! I'll block if necessary.. ( ;´ - `;) (dni list is common sense, not listing it)
 
+<img width="640" height="480" alt="image" src="https://github.com/user-attachments/assets/c377ed70-7cb4-49cf-b3ea-497eddea4ae6" />
+
+
 I DO LIKE TO MAKE FRIENDS THOUGH!! I can be too hyper at times and I also tend to apologize and panic over everything.. OOPS! (´⊙ω⊙`)ᵒᵐᵍᵎᵎᵎ
 
 <img width="474" height="544" alt="image" src="https://github.com/user-attachments/assets/eb5a1698-d600-4647-80dd-559525313a51" /> me and my bestie Cream! (HI BLISS!!!) (´・ω・`)
+
+
+
+<img width="309" height="479" alt="image" src="https://github.com/user-attachments/assets/bfba184f-d566-4f13-8f26-899547cfaf38" /> Thinking about him probably...
 
 
 
