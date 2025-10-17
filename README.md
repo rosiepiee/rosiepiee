@@ -31,7 +31,7 @@ I LOVE SONAMY SM THEY'RE LITERALLY ME AND MY HUSBAND!! (Other Sonic's iwc.. YOU 
 I HAVE A BF AND I'M HAPPILY TAKEN!!! PLS NO FLIRTING, EVEN AS A JOKE. (¬`‸´¬)
 
 
-<img width="325" height="500" alt="image" src="https://github.com/user-attachments/assets/14be223e-f20c-4804-97d1-2b0453d5a18b" />
+<img width="474" height="355" alt="image" src="https://github.com/user-attachments/assets/6ec6d310-2793-41cc-9e96-1aa9dc3f3ee1" />
 
 
 Pls dni with me if it's just for drama or to ragebait me.. it already happened a couple of times and YEAH! I'll block if necessary.. ( ;´ - `;) (dni list is common sense, not listing it)
