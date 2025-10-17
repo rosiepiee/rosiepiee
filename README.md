@@ -28,7 +28,7 @@ I LOVE SONAMY SM THEY'RE LITERALLY ME AND MY HUSBAND!! (Other Sonic's iwc.. YOU 
 
 
 
-I HAVE A BF AND I'M HAPPILY TAKEN!!! PLS NO FLIRTING, EVEN AS A JOKE PLS. (¬`‸´¬)
+I HAVE A BF AND I'M HAPPILY TAKEN!!! PLS NO FLIRTING, EVEN AS A JOKE. (¬`‸´¬)
 
 
 <img width="325" height="500" alt="image" src="https://github.com/user-attachments/assets/14be223e-f20c-4804-97d1-2b0453d5a18b" />
