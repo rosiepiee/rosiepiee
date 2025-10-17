@@ -43,7 +43,7 @@ I DO LIKE TO MAKE FRIENDS THOUGH!! I can be too hyper at times and I also tend t
 
 <img width="474" height="544" alt="image" src="https://github.com/user-attachments/assets/eb5a1698-d600-4647-80dd-559525313a51" /> me and my bestie Cream! (HI BLISS!!!) (´・ω・`) 
 
-
+˙ . ꒷ 🍰 . 𖦹˙—˙ . ꒷ 🍰 . 𖦹˙—
 
 <img width="236" height="224" alt="image" src="https://github.com/user-attachments/assets/66abf7a0-7028-44e6-9dca-60addbfb47ff" />
 
