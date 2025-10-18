@@ -9,7 +9,7 @@ I use she/her and he/him pronouns! ₍^. .^₎⟆
 <img width="383" height="500" alt="image" src="https://github.com/user-attachments/assets/ff72ff9b-62e1-4bb4-aa04-40117ad33f3a" />
 
 
-I am a very big Sonic and Danganronpa fan but I also love MLP. TWDG, Mortal Kombat, Parappa, and Creepypastas! ‧₊ ᵎᵎ 🍒 ⋅ ˚✮
+I am a very big Sonic and Danganronpa fan but I also love MLP, TWDG, Mortal Kombat, Parappa, and Creepypastas! ‧₊ ᵎᵎ 🍒 ⋅ ˚✮
 
 
 I am a huge nerd when it comes to anything exe related btw... ♡´･ᴗ･`♡
