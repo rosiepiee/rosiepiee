@@ -2,7 +2,7 @@
 
 HI! I'm Rose! A goober!! ──★ ˙🍓 ̟ !!
 
-An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶)
+An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶) (I also kin Shadow, Knuckles, Jet, and characters from other media! I'm them fr..)
 
 I use any pronouns! ₍^. .^₎⟆
 
