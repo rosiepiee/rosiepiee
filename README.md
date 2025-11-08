@@ -4,7 +4,7 @@ HI! I'm Rose! A goober!! ──★ ˙🍓 ̟ !!
 
 An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶)
 
-I use she/her and he/him pronouns! ₍^. .^₎⟆
+I use any pronouns! ₍^. .^₎⟆
 
 <img width="383" height="500" alt="image" src="https://github.com/user-attachments/assets/ff72ff9b-62e1-4bb4-aa04-40117ad33f3a" />
 
