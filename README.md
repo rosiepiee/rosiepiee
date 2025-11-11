@@ -2,7 +2,7 @@
 
 HI! I'm Rose! A goober!! ──★ ˙🍓 ̟ !!
 
-An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶) (I also kin Shadow, Knuckles, Jet, and characters from other media! I'm them fr..)
+An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶) (I also kin Shadow, Knuckles, Jet, Surge, Sally, Blaze, Rouge and characters from other media! I'm them fr..) I KNOW.. IT'S A LOT. Also um.. I ship em all with Sonic (MY BF) so pls cry about it if you don't like it, I don't really care.
 
 I use any pronouns! ₍^. .^₎⟆
 
