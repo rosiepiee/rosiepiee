@@ -2,14 +2,14 @@
 
 HI! I'm Rose! A goober!! ──★ ˙🍓 ̟ !!
 
-An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶) (My main kins CURRENTLY are Shadow, Amy, Lute, Charlie, and more but the list is LOONNNGGGUH) ALSO UM! I ONLY MATCH WITH MY BF SO SHIPS DNI PLS! ALSO I RARELY RP!
+An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶) (My main kins CURRENTLY are Shadow, Amy, Lute, Charlie, and more but the list is LOONNNGGGUH) ALSO UM! I ONLY MATCH WITH MY BF SO SHIPS DNI PLS! ALSO I RARELY RP! IF MY SKIN EVER BOTHERS YOU PLS HIDE ME, I RATHER IT NOT BE A BIG DEAL, THANKS! Especially cause I multiship sigh...
 
 I use any pronouns! ₍^. .^₎⟆
 
 <img width="383" height="500" alt="image" src="https://github.com/user-attachments/assets/ff72ff9b-62e1-4bb4-aa04-40117ad33f3a" />
 
 
-I am a very big Sonic and Danganronpa fan but I also love MLP, TWDG, Mortal Kombat, Parappa, and Creepypastas! ‧₊ ᵎᵎ 🍒 ⋅ ˚✮
+I am a very big Sonic and Danganronpa fan but I also love MLP, TWDG, Mortal Kombat, Hazbin Hotel, Parappa, and Creepypastas! ‧₊ ᵎᵎ 🍒 ⋅ ˚✮
 
 
 I am a huge nerd when it comes to anything exe related btw... ♡´･ᴗ･`♡
