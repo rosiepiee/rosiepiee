@@ -2,7 +2,7 @@
 
 HI! I'm Rose! A goober!! ──★ ˙🍓 ̟ !!
 
-An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶) (My main kins CURRENTLY are Shadow, Amy, Lute, Charlie, and more but the list is LOONNNGGGUH) ALSO UM! I ONLY MATCH WITH MY BF SO SHIPS DNI PLS! ALSO I RARELY RP! IF MY SKINS EVER BOTHER YOU PLS HIDE ME, I RATHER IT NOT BE A BIG DEAL, THANKS! Especially cause I multiship sigh...
+An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶) (I'm an Chihiro Fujisaki and Amy Rose fictkin but I kin others as well!) ALSO UM! I ONLY MATCH WITH MY BF SO SHIPS DNI PLS! ALSO I RARELY RP! IF MY SKINS EVER BOTHER YOU PLS HIDE ME, I RATHER IT NOT BE A BIG DEAL, THANKS! Especially cause I multiship sigh...
 
 I use any pronouns! ₍^. .^₎⟆
 
