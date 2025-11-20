@@ -4,7 +4,7 @@ HI! I'm Rose! A goober!! ──★ ˙🍓 ̟ !!
 
 An Amy Rose kinnie... I'm Amy IRL! (˶˃ ᵕ ˂˶) (I'm a Chihiro Fujisaki and Amy Rose fictkin but I kin others as well!) ALSO UM! I ONLY MATCH WITH MY BF SO SHIPS DNI PLS! ALSO I RARELY RP! IF MY SKINS EVER BOTHER YOU PLS HIDE ME, I RATHER IT NOT BE A BIG DEAL, THANKS! Especially cause I multiship sigh...
 
-I use any pronouns! ₍^. .^₎⟆
+I use she/he pronouns! ₍^. .^₎⟆
 
 <img width="383" height="500" alt="image" src="https://github.com/user-attachments/assets/ff72ff9b-62e1-4bb4-aa04-40117ad33f3a" />
 
