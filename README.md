@@ -10,4 +10,6 @@ HI! I'm Rose or Rosie! You can also call me Chihiro, Chi, ANYTHING SIMILAR, HHK!
 
 𐙚⋆°🦢.⋆ᥫ᭡ I use she/he pronouns ONLY! (I don't really have a pref honestly.. she is first cause I'm a female HHHKK) (˶ ᵔ ̫ ᵔ ˶) ♡
 
+──★ ˙🍓 ̟ !! I'm taken with my AMAZING BOYFRIEND!! MY BEAUTIFUL BABY! I LOVE HIM SO MUCH!!! ♡(੭´͈ ᐜ `͈)੭ (SO SHIPS DNI PLS! MAKES ME UNCOMFY! TY!) 
+
 ...WIP!
