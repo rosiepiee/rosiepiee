@@ -18,6 +18,7 @@ HI! I'm Rose or Rosie! You can also call me Chihiro, Chi, ANYTHING SIMILAR, HHK!
 
 ୧ ‧₊˚ 🍮 ⋅ ☆ I DON'T RP... SO SORRY! I ONLY RP AS A JOKE WITH FRIENDS!! (ó﹏ò｡) (LOVE Y'ALL!! YOU GUYS KNOW WHO YOU ARE!!!1!)
 
-<img width="564" height="564" alt="image" src="https://github.com/user-attachments/assets/ba303f64-17ed-48dd-b986-5e3628eb2a3b" />
+
+<img width="184" height="182" alt="image" src="https://github.com/user-attachments/assets/e104a61a-de07-4c24-a963-db9caeda773a" />
 
 ...WIP!
