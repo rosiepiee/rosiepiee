@@ -1,4 +1,4 @@
-˚.🎀༘⋆˚.🎀༘⋆˚.🎀༘⋆˚.🎀༘⋆˚.🎀༘⋆
+⋆｡‧˚ʚ🍓ɞ˚‧｡⋆⋆｡‧˚ʚ🍓ɞ˚‧｡⋆⋆｡‧˚ʚ🍓ɞ˚‧｡⋆⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
 
 HI! I'm Rose or Rosie! You can also call me Chihiro, Chi, ANYTHING SIMILAR, HHK! I'm a Chihiro Fujisaki fictkin and it just makes me really happy! ꉂ(˵˃ ᗜ ˂˵) (If it makes you uncomfortable, SORRY! Just dni.., simple!) (˶˃ ᵕ ˂˶)
 
