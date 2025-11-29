@@ -1,6 +1,6 @@
 ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆⋆｡‧˚ʚ🍓ɞ˚‧｡⋆⋆｡‧˚ʚ🍓ɞ˚‧｡⋆⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
 
-HI! I'm Rose or Rosie! You can also call me Chihiro, Chi, ANYTHING SIMILAR, HHK! I'm a Chihiro Fujisaki fictkin and it just makes me really happy! ꉂ(˵˃ ᗜ ˂˵) (If it makes you uncomfortable, SORRY! Just dni.., simple!) (˶˃ ᵕ ˂˶)
+HI! I'm Rose or Rosie! You can also call me Chihiro, Chi, ANYTHING SIMILAR, HHK! I'm a Chihiro Fujisaki fictkin and it just makes me really happy! ꉂ(˵˃ ᗜ ˂˵) (If it makes you uncomfortable, SORRY! Just dni.., simple!) (˶˃ ᵕ ˂˶) (I'm also a Sonia kinnie so you can call me her as well!) 
 
 ִֶָ𓂃 ࣪˖ ִֶָ🐇་༘࿐ If it isn't obvious, I am obsessed with Danganronpa! My favorites (IT'S A LOT) being.. Kazuichi, Kaito, Leon, Nekomaru, Korekiyo, Kibo, Yasuhiro, Mondo, Taka, and ME!1!! HUZZAH! (˶ˆᗜˆ˵)
 
