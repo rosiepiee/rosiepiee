@@ -2,6 +2,8 @@ Rose/Rosie/Kins idk or care man (All of my kins are listed in my strawpage)
 
 she/he, he/she, idc. 
 
+Fandoms I'm in: Danganronpa, Sonic, MLP, MHA, Parappa, TWDG, Mortal Kombat, Exe, Creepypastas, Yandere Simulator (I DO NOT SUPPORT YANDEV), and more that I.. for sure forgot.
+
 I LOVE MY BF!!! I LOVE HIIIMMM SO MUCH!!
 
 I love Soudam and Sonadow. I also ship most (LEGAL!!!!!) ships with Sonic, if any of that makes you uncomfy.. hide me or ignore me, I do NOT care.
