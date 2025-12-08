@@ -6,7 +6,7 @@ I LOVE MY BF!!! I LOVE HIIIMMM SO MUCH!!
 
 I love Soudam and Sonadow. I also ship most (LEGAL!!!!!) ships with Sonic, if any of that makes you uncomfy.. hide me or ignore me, I do NOT care.
 
-Respectfully, fuck off if you come up to me, my friends, or my bf just to ragebait or start drama, you will be getting hid so quick. 
+Respectfully, fuck off if you come up to me, my friends, or my bf just to ragebait or start drama, you will be getting blocked so quick. 
 
 BYI! I have attachment/trust issues, mood swings, anxiety, and suspected depressions. I also apologize a lot.. If that bothers you, just dni with me. I am not looking for friends anyway.
 
