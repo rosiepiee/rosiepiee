@@ -1,6 +1,8 @@
 Rose/Rosie/Amy/Kins idk or care man (All of my kins are listed in my strawpage)
 
-she/he prnouns!
+Amy Rose Fictkin!
+
+she/he pronouns!
 
 Fandoms I'm in: Danganronpa, Sonic, MLP, MHA, Parappa, TWDG, Mortal Kombat, Exe, Creepypastas, Yandere Simulator (I DO NOT SUPPORT YANDEV), and more that I.. for sure forgot.
 
