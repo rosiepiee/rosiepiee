@@ -1,4 +1,4 @@
-Rose/Rosie//Kins idk or care man (All of my kins are listed in my strawpage)
+Rose/Rosie/Kins idk or care man (All of my kins are listed in my strawpage)
 
 Amy Rose and Katsuki Bakugou fictkin!
 
