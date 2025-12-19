@@ -10,7 +10,7 @@ I LOVE MY BF!!! I LOVE HIIIMMM SO MUCH!!
 
 I love Soudam and Sonamy. I also ship most (LEGAL!!!!!) ships with Sonic, if any of that makes you uncomfy.. hide me or ignore me, I do NOT care.
 
-KIRIBAKUUUUU, EXPLODES
+KIRIBAKUUUUU, KIRIMINAAAA EXPLODES
 
 Respectfully, fuck off if you come up to me, my friends, or my bf just to ragebait or start drama, you will be getting blocked so quick. 
 
