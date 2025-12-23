@@ -14,7 +14,7 @@ I love my bf so so much, i loveee hiiimm!
 
 i love making friends, pls dont hesitate to say hi to me, im just nervous when saying something first unless its to crown you..
 
-byi, my mental health is extremely wonky. I have anxiety, suspected depression, mood swings, trust issues, attachment issues (anxious attachment), and my brain can take a while to understand something, I also tend to apologize over very small things which is unfortunately out of my control.. pls pls try to be nice as im trying really hard.
+byi, my mental health is extremely wonky. I have anxiety, suspected depression, mood swings, trust issues, attachment issues, and my brain can take a while to understand something, I also tend to apologize over very small things which is unfortunately out of my control.. pls pls try to be nice as im trying really hard.
 
 I can be a hyper and cheerful person but my brain is weird so if I feel like I did something wrong or hurt you, I will probably distant myself or stay silent.
 
