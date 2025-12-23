@@ -1,21 +1,23 @@
-Rose/Rosie/Kins idk or care man (All of my kins are listed in my strawpage)
+Rose/Rosie
 
-Amy Rose fictkin!
+she/he pronouns
 
-she/he pronouns!
+Amy Rose fictkin
 
-Fandoms I'm in: Danganronpa, Sonic, MLP, MHA, Parappa, TWDG, Mortal Kombat, Exe, Creepypastas, Yandere Simulator (I DO NOT SUPPORT YANDEV), and more that I.. for sure forgot.
+Multifandoms, just check my strawpage.
 
-I LOVE MY BF!!! I LOVE HIIIMMM SO MUCH!!
+I collect my kins like pokemon, i see myself in so many characters /silly
 
-I love Soudam and Sonamy. I also ship most (LEGAL!!!!!) ships with Sonic, if any of that makes you uncomfy.. hide me or ignore me, I do NOT care.
+I love love sonamy, its my comfort ship (I pass Sonic around at this point.. I ship him with so many characters.. LEGALLY!!!)
 
-KIRIBAKUUUUU, KIRIMINAAAA EXPLODES
+I love my bf so so much, i loveee hiiimm!
 
-Respectfully, fuck off if you come up to me, my friends, or my bf just to ragebait or start drama, you will be getting blocked so quick. 
+i love making friends, pls dont hesitate to say hi to me, im just nervous when saying something first unless its to crown you..
 
-BYI! I have attachment/trust issues, mood swings, anxiety, anger issues, and suspected depression. I also apologize a lot.. If that bothers you, just dni with me. I am not looking for friends anyway. (You can still talk though, idm)
+byi, my mental health is extremely wonky. I have anxiety, suspected depression, mood swings, trust issues, attachment issues (anxious attachment), and my brain can take a while to understand something, I also tend to apologize over very small things which is unfortunately out of my control.. pls pls try to be nice as im trying really hard.
 
-If you proship or try to flirt with me, pls get the hell away from me, thanks! <3
+I can be a hyper and cheerful person but my brain is weird so if I feel like I did something wrong or hurt you, I will probably distant myself or stay silent.
 
-(THIS IS ALL BASIC INFO, I AM REMAKING THIS WHEN I FEEL LIKE IT)
+I love pink things so much.
+
+remaking this when i have more energy.
