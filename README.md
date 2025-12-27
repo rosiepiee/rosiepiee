@@ -1,23 +1,38 @@
-Rose/Rosie
+You may call me.. Gundham Tanaka.
 
-she/he pronouns
+Jk.. or uh uh am I? 🤔 (I'm so sorry that was cringe....)
 
-I have too many kins so sometimes it just switches.... 😔
+OKAY but, HI I'm Rose... OR ROSIE, OR GUNDHAM, OR OTHER KINS I HONESTLY DO NOT CARE.
 
-Multifandoms, just check my strawpage.
+she/he, whatever is cuter i kinda don't care.
 
-I collect my kins like pokemon, i see myself in so many characters /silly
+THE Amy Rose and Gundham Tanaka kinnie. (I kin WAY more.... check out my strawpages if youre curious!) I tend to switch between my kins but.. I'm them trust.. GULP
 
-I love love sonamy, sonadow, and sonaze, my comfort ships (I pass Sonic around at this point.. I ship him with so many characters.. LEGALLY!!!)
+Fandoms: Sonic, Danganronpa, TWDG, MLP, Exe, Some creepypastas, DDLC, Parappa, MHA, Yansim (I DO NOT SUPPORT YANDEV), and more!
 
-I love my bf so so much, I LOVE HIM SO MUCH OMG!!!
+I am MOSTLY if not ALWAYS on 18+ if I find out that youre a lil infant in the 18+ server, blocked. there's a safe server for a reason. <3
 
-i love making friends, pls dont hesitate to say hi to me, im just nervous when saying something first unless its to crown you..
+Standard dni, absolutely DNI IF A PRO/DARKSHIPPER, pls PLS! No trans/homophobes, no rude ass people, NO KIDS, get what I'm saying? OKAY! (OH AND ALSO, SHIPS DNI! TY! I ONLY MATCH WITH MY BF!!)
 
-byi, my mental health is extremely wonky. I have anxiety, suspected depression, mood swings, trust issues, attachment issues, and my brain can take a while to understand something, I also tend to apologize over very small things which is unfortunately out of my control.. pls pls try to be nice as im trying really hard.
+I LOVE MY SWEET BOY SM!!!!! I LOVE HIM!! 
 
-I can be a hyper person but my brain is weird so if I feel like I did something wrong or hurt you, I will probably distant myself or stay silent.
+I am mainly on pt with my sister, friends, or my bf so I am very sorry if I miss texts. (I am also offtab or listening to music sometimes) but whispering is the best way to get my attention! I am on alone sometimes mainly to walk around or chill so you can int if you aren't in my dni list!
 
-I love pink things so much!!!!!
+Bro I love Caseoh PLS TALK TO ME ABOUT CASEOH!!!!!
 
-remaking this when i have more energy.
+I absolutely adore Soudam, I love them so much, if that bothers you... OKAY! I do not care what you think! It's mine and my boyfriend's comfort ship and it makes us VERY HAPPY!
+
+I DO NOT, I REPEAT DO NOT ROLEPLAY!!! PLS DONT RP WITH ME. I ONLY JOKINGLY RP WITH FRIENDS AND MY BF!
+
+my bf thinks i'm gay.... (not wrong..)
+
+UH YEAH BYE 
+
+<img width="474" height="416" alt="image" src="https://github.com/user-attachments/assets/bc622d27-9d30-4d41-a345-b3e30f80aa4b" />
+
+<img width="720" height="659" alt="image" src="https://github.com/user-attachments/assets/dbd22806-e3fc-48ed-9ed5-b4022aa582c2" />
+
+
+<img width="600" height="340" alt="image" src="https://github.com/user-attachments/assets/dc0b8700-1f9b-43e8-8dc8-c098c47e02a0" />
+
+
