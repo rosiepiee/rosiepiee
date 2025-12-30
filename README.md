@@ -6,7 +6,7 @@ OKAY but, HI I'm Rose... OR ROSIE, OR GUNDHAM, OR OTHER KINS I HONESTLY DO NOT C
 
 she/he, whatever is cuter i kinda don't care.
 
-THE Gundham Tanaka kinnie. (I kin WAY more.... check out my strawpages if youre curious!) I tend to switch between my kins (especially my sonic kins..) but.. I'm them trust.. GULP
+THE Gundham Tanaka and Amy Rose kinnie. (I kin WAY more.... check out my strawpages if youre curious!) I tend to switch between my kins but.. I'm them trust.. GULP
 
 Fandoms: Sonic, Danganronpa, TWDG, MLP, Exe, Some creepypastas, DDLC, Parappa, MHA, Yansim (I DO NOT SUPPORT YANDEV), and more!
 
