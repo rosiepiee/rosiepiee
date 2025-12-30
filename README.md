@@ -22,7 +22,7 @@ Bro I love Caseoh PLS TALK TO ME ABOUT CASEOH!!!!!
 
 I absolutely adore Soudam, I love them so much, if that bothers you... OKAY! I do not care what you think! It's mine and my boyfriend's comfort ship and it makes us VERY HAPPY!
 
-I also love Sonamy, Sonadow, Sonjet, and Sonaze, I multiship if it isnt obvious.. if it bothers you? COOL! Don't care, hide or block me!
+I ship all of my kins with Sonic... (Which is a lot..) WANNA KNOW? COOL OKAY. Sonamy, Sonadow, Sonjet, Sonknux, Sonaze, Sonally, and Sonouge. If this bothers you.. OKAY! You should probably hide me IDK!
 
 I DO NOT, I REPEAT DO NOT ROLEPLAY!!! PLS DONT RP WITH ME. I ONLY JOKINGLY RP WITH FRIENDS AND MY BF ..WHICH I BARELY DO ANYWAY!
 
