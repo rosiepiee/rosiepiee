@@ -2,11 +2,11 @@ You may call me.. Gundham Tanaka.
 
 Jk.. or uh uh am I? 🤔 (I'm so sorry that was cringe....)
 
-OKAY but, HI I'm Rose... OR ROSIE, OR GUNDHAM, OR OTHER KINS I HONESTLY DO NOT CARE.
+OKAY but, HI I'm Rose... OR ROSIE, OR AMY.., OR GUNDHAM, OR OTHER KINS I HONESTLY DO NOT CARE.
 
 she/he, whatever is cuter i kinda don't care.
 
-THE Gundham Tanaka and Amy Rose kinnie. (I kin WAY more.... check out my strawpages if youre curious!) I tend to switch between my kins but.. I'm them trust.. GULP
+THE Gundham Tanaka and Amy Rose kinnie. I'm them irl idc. (I kin WAY more.... check out my strawpages if youre curious!)
 
 Fandoms: Sonic, Danganronpa, TWDG, MLP, Exe, Some creepypastas, DDLC, Parappa, MHA, Yansim (I DO NOT SUPPORT YANDEV), and more!
 
@@ -22,7 +22,7 @@ Bro I love Caseoh PLS TALK TO ME ABOUT CASEOH!!!!!
 
 I absolutely adore Soudam, I love them so much, if that bothers you... OKAY! I do not care what you think! It's mine and my boyfriend's comfort ship and it makes us VERY HAPPY!
 
-I ship all of my kins with Sonic... (Which is a lot..) WANNA KNOW? COOL OKAY. Sonamy, Sonadow, Sonjet, Sonknux, Sonaze, Sonally, and Sonouge. If this bothers you.. OKAY! You should probably hide me IDK!
+I love sonamy so much, I love them, they make me SO HAPPY!! ALSO A COMFORT SHIP!!! Might cry typing it GOD I'M CRINGE
 
 I DO NOT, I REPEAT DO NOT ROLEPLAY!!! PLS DONT RP WITH ME. I ONLY JOKINGLY RP WITH FRIENDS AND MY BF ..WHICH I BARELY DO ANYWAY!
 
