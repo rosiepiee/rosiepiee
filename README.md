@@ -10,11 +10,11 @@ I am MOSTLY if not ALWAYS on 18+ if I find out that youre a lil infant in the 18
 
 Standard dni, absolutely DNI IF A PRO/DARKSHIPPER, pls PLS! No trans/homophobes, no rude ass people, NO KIDS, get what I'm saying? OKAY! (OH AND ALSO, SHIPS DNI! TY! I ONLY MATCH WITH MY BF!!)
 
-BYI!! I am kinda a hard person to talk to. I have mood swings so I am either very cheerful and hyper or literally depressed for no reason. It happens randomly and out of my control... ALSO, I have anixety, suspected depression, trust and attachment issues (I clinge and I am scared of abandonment), and it is sometimes hard for me to keep a conversation going. I DO LOVE TO TALK so that doesn't mean i won't try! If this bothers you just don't talk to me pls, makes it easier for me honestly!
+BYI!! I am kinda a hard person to talk to. I have mood swings so I am either very cheerful and hyper or literally depressed for no reason. It happens randomly and out of my control... ALSO, I have anixety, suspected depression, trust and attachment issues, and it is sometimes hard for me to keep a conversation going. I DO LOVE TO TALK so that doesn't mean i won't try! If this bothers you just don't talk to me pls, makes it easier for me honestly!
 
 If I am talking to someone who's bad/I'm unaware if they are in my dni list, pls let me know, thank you. I rather not make it an issue! <3
 
-I LOVE MY SWEET BOY SO MUCH!!!!! I LOVE HIM!! 
+I LOVE MY SWEET BOY SO MUCH!!!!! I LOVE HIM!! THE LOML!!!!!!
 
 I am mainly on pt with my sister, friends, or my bf so I am very sorry if I miss texts. (I am also offtab or listening to music sometimes) but whispering is the best way to get my attention! I am on alone sometimes mainly to walk around or chill so you can int if you aren't in my dni list!
 
