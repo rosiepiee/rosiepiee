@@ -1,6 +1,6 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-⋆˚✿˖° HIII!! I'M ROSE!! OR ROSIE.. OR FOR GIGGLES YOU CAN CALL ME AMY OR GUNDHAM.. OR ANY OTHER KINS OF MINE!!! ⋆˚✿˖°  ꉂ(˵˃ ᗜ ˂˵)
+⋆˚✿˖° HIII!! I'M ROSE!! OR ROSIE.. OR FOR GIGGLES YOU CAN CALL ME AMY OR GUNDHAM..  .ᐟ.ᐟ  ⋆˚✿˖°  ꉂ(˵˃ ᗜ ˂˵)
 
 ❥ I use she/he pronouns .ᐟ.ᐟ (˶ˆᗜˆ˵)
 
