@@ -1,10 +1,10 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-⋆˚✿˖° HIII!! I'M ROSE!! OR ROSIE.. OR FOR GIGGLES YOU CAN CALL ME AMY OR GUNDHAM..  .ᐟ.ᐟ  ⋆˚✿˖°  ꉂ(˵˃ ᗜ ˂˵)
+⋆˚✿˖° HIII!! I'M ROSE!! OR ROSIE.. OR AMY..  .ᐟ.ᐟ  ⋆˚✿˖°  ꉂ(˵˃ ᗜ ˂˵)
 
-❥ I use she/he pronouns .ᐟ.ᐟ (˶ˆᗜˆ˵)
+❥ I use she/her pronouns .ᐟ.ᐟ (˶ˆᗜˆ˵)
 
-❥ THE Gundham Tanaka and Amy Rose kinnie. I'm them irl idc. (I kin WAY more.... check out my strawpages if youre curious!)
+❥ THE Gundham Tanaka and Amy Rose kinnie. I'm them irl idc. (I kin WAY more.... check out my strawpages if youre curious!) I AM AN AMY ROSE FICTKIN
 
 ❥ Fandoms: Sonic, Danganronpa, TWDG, MLP, Exe, Some creepypastas, DDLC, Parappa, MHA, Yansim (I DO NOT SUPPORT YANDEV), and more!
 
