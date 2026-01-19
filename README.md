@@ -33,6 +33,7 @@
 ♥︎ my bf thinks i'm gay.... (not wrong..)
 
 UH YEAH BYE 
+
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 <img width="474" height="416" alt="image" src="https://github.com/user-attachments/assets/bc622d27-9d30-4d41-a345-b3e30f80aa4b" />
