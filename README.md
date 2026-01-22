@@ -1,6 +1,6 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-⋆˚✿˖° HIII!! I'M ROSE!! OR ROSIE.. OR AMY..  .ᐟ.ᐟ  ⋆˚✿˖°  ꉂ(˵˃ ᗜ ˂˵)
+⋆˚✿˖° HIII!! I'M ROSE!! BUT YOU CAN ALSO CALL ME ROSIE OR ANY OF MY KINS  .ᐟ.ᐟ  ⋆˚✿˖°  ꉂ(˵˃ ᗜ ˂˵)
 
 ❥ I use she/he pronouns .ᐟ.ᐟ (˶ˆᗜˆ˵)
 
