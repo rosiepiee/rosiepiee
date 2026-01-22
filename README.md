@@ -4,7 +4,7 @@
 
 ❥ I use she/he pronouns .ᐟ.ᐟ (˶ˆᗜˆ˵)
 
-❥ THE Gundham Tanaka and Amy Rose kinnie. I'm them irl idc. (I kin WAY more.... check out my strawpages if youre curious!) I AM AN AMY ROSE FICTKIN
+❥ THE Gundham Tanaka and Amy Rose kinnie. I'm them irl idc. (I kin WAY more.... check out my strawpages if youre curious!) I AM AN AMY ROSE AND GUNDHAM TANAKA FICTKIN. If that bothers you.. okay! I don't really care lol
 
 ❥ Fandoms: Sonic, Danganronpa, TWDG, MLP, Exe, Some creepypastas, DDLC, Parappa, MHA, Yansim (I DO NOT SUPPORT YANDEV), and more!
 
