@@ -4,7 +4,7 @@
 
 ❥ I use she/he pronouns .ᐟ.ᐟ (˶ˆᗜˆ˵)
 
-❥ THE Gundham Tanaka and Amy Rose kinnie. I'm them irl idc. (I kin WAY more.... check out my strawpages if youre curious!) I AM AN AMY ROSE AND GUNDHAM TANAKA FICTKIN. If that bothers you.. okay! I don't really care lol
+❥ THE Gundham Tanaka, Amy Rose, and Shadow The Hedgehog kinnie. I'm them irl idc. (I kin WAY more.... check out my strawpages if youre curious!) 
 
 ❥ Fandoms: Sonic, Danganronpa, TWDG, MLP, Exe, Some creepypastas, DDLC, Parappa, MHA, Yansim (I DO NOT SUPPORT YANDEV), and more!
 
@@ -24,9 +24,9 @@
 
 ❥ I absolutely adore Soudam, I love them so much, if that bothers you... OKAY! I do not care what you think! It's mine and my boyfriend's comfort ship and it makes us VERY HAPPY!
 
-❥ I love sonamy so much, I love them, they make me SO HAPPY!! ALSO A COMFORT SHIP!!! Might cry typing it GOD I'M CRINGE
+❥ I love sonamy and sonadow so much, I love them, they make me SO HAPPY!! ALSO MY COMFORT SHIPS!!! Might cry typing it GOD I'M CRINGE /HJ
 
-❥ I literally cry to sonamy and soudam angst... I WISH I was joking ☹️ (I LOVE THEM!!!! GUYS I LOVE THEM!)
+❥ I literally cry to sonamy, sonadow, and soudam angst... I WISH I was joking ☹️ (I LOVE THEM!!!! GUYS I LOVE THEM!)
 
 ❥ I DO NOT, I REPEAT DO NOT ROLEPLAY!!! PLS DONT RP WITH ME. I ONLY JOKINGLY RP WITH FRIENDS AND MY BF ..WHICH I BARELY DO ANYWAY!
 
