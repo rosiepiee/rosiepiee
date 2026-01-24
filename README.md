@@ -10,7 +10,7 @@
 
 ❥ I am MOSTLY if not ALWAYS on 18+ if I find out that youre a lil infant in the 18+ server, blocked. there's a safe server for a reason. <3 
 
-❥ Standard dni, absolutely DNI IF A PRO/DARKSHIPPER, pls PLS! No trans/homophobes, no rude ass people, NO KIDS, get what I'm saying? OKAY! (OH AND ALSO, SHIPS DNI! TY! I ONLY MATCH WITH MY BF!!)
+❥ Standard dni, absolutely DNI IF A PRO/DARKSHIPPER, pls PLS! No trans/homophobes, no rude ass people, NO KIDS, get what I'm saying? OKAY! (OH AND ALSO, SHIPS DNI! TY! I ONLY MATCH WITH MY BF!!) (iwc if you ship shadamy, nothing personal! just makes me uncomfortable.)
 
 ♥︎ BYI!! I am kinda a hard person to talk to. I have mood swings so I am either very cheerful and hyper or literally depressed for no reason. It happens randomly and out of my control... ALSO, I have anixety, suspected depression, trust and attachment issues, and it is sometimes hard for me to keep a conversation going. I DO LOVE TO TALK so that doesn't mean i won't try! If this bothers you just don't talk to me pls, makes it easier for me honestly! (I am trying to get better mentally!)
 
