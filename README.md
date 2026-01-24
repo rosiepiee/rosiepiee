@@ -42,6 +42,11 @@ UH YEAH BYE
 
 <img width="744" height="600" alt="image" src="https://github.com/user-attachments/assets/3ac0de5f-a845-4ce4-8b1d-473735f0be43" />
 
+<img width="918" height="870" alt="image" src="https://github.com/user-attachments/assets/32abfb7c-ea5d-425c-8a97-13da5693ea84" />
+
+
+<img width="941" height="811" alt="image" src="https://github.com/user-attachments/assets/7aafa9bf-ebc6-4181-8f2d-d2ebd74f1a81" />
+
 
 <img width="350" height="350" alt="image" src="https://github.com/user-attachments/assets/9850d375-809f-4133-9676-a182a6e53dd3" />
 
