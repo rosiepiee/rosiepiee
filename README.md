@@ -12,7 +12,7 @@ My Fandoms: Sonic (Main), Danganronpa, TWDG, MLP, Mortal Kombat, Parappa, Yansim
 
 I love Sonadow, Sonamy, and Soudam, they are my comfort ships! AGHH! If it bothers you, okay! They're mine not yours! 🤗
 
-DNI: A literal CHILD, proshippers, hazbin fans and skins, (I was in it, never going back..), rude ass people, and just anything problematic. I hide freely, especially if what you are saying or doing urks me.
+DNI: Literal CHILDREN, proshippers, hazbin fans and skins, (I was like y'all, never going back..), rude people, and just anything problematic. I hide freely, especially if what you are saying or doing urks me.
 
 BYI: I cuss a lot (Not in a hazbin way.. just a warning), I can be hyper, I have trust/attachment issues, mood swings, anxiety, suspected depression, and small anger issues. I cannot pick a struggle. (I am trying to be better though)
 
