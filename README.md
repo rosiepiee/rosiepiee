@@ -1,6 +1,6 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
-Hii, I'm Rose, you can also call me Rosie or any of my kins (I prefer Shadow but idrc)
+Hii, I'm Rose, you can also call me Rosie or any of my kins 
 
 she/he, he/she, whatever man. I kinda don't have a preference 😭
 
