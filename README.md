@@ -4,7 +4,7 @@ Rose/Rosie
 
 she/her, he/him
 
-The Ash Ketchum, Amy Rose, and Yuri kinnie
+The Ash Ketchum, Amy Rose, Gundham Tanaka, and Yuri kinnie
 
 SONICHU AND TIT PONIES DNI OMG PLS I BEG DON'T BE NEAR ME, THANKS.
 
