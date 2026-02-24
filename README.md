@@ -4,13 +4,13 @@ Rose/Rosie/Kins(?)
 
 she/her, he/him
 
-The Ash Ketchum, Amy Rose, Gundham Tanaka, and Yuri kinnie
+The Amy Rose, Pinkie Pie, Gundham Tanaka, and Yuri kinnie
 
-SONICHU AND TIT PONIES DNI OMG PLS I BEG DON'T BE NEAR ME, THANKS. (Dni if youre a hazbin skin, ESPECIALLY ALASTOR. I hate that man)
+SONICHU AND TIT PONIES DNI OMG PLS I BEG DON'T BE NEAR ME, THANKS. (Dni if youre a hazbin skin UNLESS YOURE MY FRIEND OR SOMEONE I KNOW, dni ESPECIALLY ALASTOR SKINS. I hate that man)
 
 6/4. TAKEN, I LOVE MY BF!!!! (I'm uncomfortable with flirting that isn't from them.. even if it's a joke.)
 
-My current hyperfixations are Sonic and Pokemon but I am in more fandoms! (Listed in my strawpage!)
+In a lot of fandoms that I probably forgot ngl... (Most are listed in my strawpage!)
 
 BYI. I have attachment issues, mood swings, suspected depression, anxiety, and slight anger issues. I am trying to get better at the things listed.
 
