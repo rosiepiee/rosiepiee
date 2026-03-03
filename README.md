@@ -4,7 +4,7 @@ Rose/Rosie/Kins(?)
 
 she/her, he/him
 
-The Amy Rose, Pinkie Pie, Gundham Tanaka, and Yuri kinnie
+The Gundham Tanaka kinnie
 
 SONICHU AND TIT PONIES DNI OMG PLS I BEG DON'T BE NEAR ME, THANKS. (Dni if youre a hazbin skin UNLESS YOURE MY FRIEND OR SOMEONE I KNOW, dni ESPECIALLY ALASTOR SKINS. I hate that man)
 
