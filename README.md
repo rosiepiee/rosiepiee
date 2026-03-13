@@ -1,16 +1,21 @@
 𝓣𝓱𝓮 𝓤𝓵𝓽𝓲𝓶𝓪𝓽𝓮 𝓟𝓻𝓲𝓷𝓬𝓮𝓼𝓼
 --------------------------------
 
-𝐑𝐨𝐬𝐞 / 𝐑𝐨𝐬𝐢𝐞 
+Rose / Rosie
 
-𝐬𝐡𝐞/𝐡𝐞𝐫 & 𝐡𝐞/𝐡𝐢𝐦
+she/her & he/him
 
-𝐃𝐚𝐧𝐠𝐚𝐧𝐫𝐨𝐧𝐩𝐚 𝐚𝐧𝐝 𝐒𝐨𝐧𝐢𝐜 𝐠𝐥𝐚𝐳𝐞𝐫!!
+Gundham Tanaka and Sonia Nevermind fictkin as well as an Amy Rose and Shadow The Hedgehog kinnie.
 
-𝐒𝐨𝐧𝐢𝐚 𝐍𝐞𝐯𝐞𝐫𝐦𝐢𝐧𝐝 𝐚𝐧𝐝 𝐆𝐮𝐧𝐝𝐡𝐚𝐦 𝐓𝐚𝐧𝐚𝐤𝐚 𝐟𝐢𝐜𝐭𝐤𝐢𝐧! (𝐈 𝐚𝐥𝐬𝐨 𝐤𝐢𝐧 𝐀𝐦𝐲 𝐑𝐨𝐬𝐞 𝐚𝐧𝐝 𝐒𝐡𝐚𝐝𝐨𝐰 𝐓𝐡𝐞 𝐇𝐞𝐝𝐠𝐞𝐡𝐨𝐠!)
+Currently in love with Danganronpa, Sonic, Pokemon, and TWDG. (I have more fandoms listed in my strawpages!)
 
+6/4!! I love my bf, I love them so much!!!!
 
-𝟔/𝟒. 𝐓𝐚𝐤𝐞𝐧 𝐛𝐲 𝐦𝐲 𝐬𝐰𝐞𝐞𝐭 𝐛𝐚𝐛𝐲, 𝐈 𝐥𝐨𝐯𝐞 𝐭𝐡𝐞𝐦 𝐬𝐨 𝐦𝐮𝐜𝐡!
+I like to chill by myself so you're more than welcome to say hi, if I am with my bf, I kinda don't want anyone else to talk to me unless I know you well, no hard feelings!
+
+Standard dni but uh, no troll skins, no hazbin/helluva skins, sonichu skins, tit/dick ponies, proshippers, trans/homophobes, yeah. Insta block if you int, I can't stand y'all, sorry.
+
+BYI, I have a difficult time keeping a conversation going at times, especially when it comes to first meeting someone, I apologize if I come off as dry or anything, I do like to talk! I also have anxiety, undiagnosed but suspected depression, and mood swings. Just a heads up! (Also I'm offtab sometimes so whispering me is the best way to get my attention!) 
 
 --------------------------------
 
