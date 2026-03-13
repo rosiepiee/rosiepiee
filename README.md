@@ -19,7 +19,7 @@ Standard dni but uh, no troll skins, no hazbin/helluva skins, sonichu skins, tit
 
 BYI, I have a difficult time keeping a conversation going at times, especially when it comes to first meeting someone, I apologize if I come off as dry or anything, I do like to talk! I also have anxiety, undiagnosed but suspected depression, and mood swings. Just a heads up! (Also I'm offtab sometimes so whispering me is the best way to get my attention!) 
 
-* Can't believe I have to say this, yes, I am a fictkin, YES, I know i'm not Gundham or Sonia, they are also my comfort characters but I also know I am a human being and not some fictional character, pls don't just see me as them as it makes me uncomfortable, thank you. (If you see me as myself but also them, that is fine! Just not them pls!)
+* Can't believe I have to say this, yes, I am a fictkin, YES, I know i'm not Gundham or Sonia, they are also my comfort characters but I also know I am a human being and not some fictional character, pls don't just see me as them as it makes me uncomfortable, thank you. (If you see me as myself but also them, that is fine! Just not them pls) 
 
 --------------------------------
 
