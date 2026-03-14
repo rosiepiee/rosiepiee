@@ -1,6 +1,6 @@
-Rose/Rosie
+Hi, I'm Rose or Rosie!
 
-she/her & he/him
+she/her & he/him pronouns
 
 Gundham Tanaka and Sonia Nevermind fictkin as well as an Amy Rose and Shadow The Hedgehog kinnie.
 
