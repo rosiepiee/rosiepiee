@@ -2,7 +2,7 @@ Hi, I'm Rose or Rosie!
 
 she/her & he/him pronouns
 
-Gundham Tanaka and Sonia Nevermind fictkin as well as an Amy Rose and Shadow The Hedgehog kinnie.
+I collect kins like pokemon, it brings me comfort idk.
 
 Currently in love with Danganronpa, Sonic, Pokemon, and TWDG. (I have more fandoms listed in my strawpages!)
 
