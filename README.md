@@ -1,1 +1,1 @@
-<img width="736" height="569" alt="image" src="https://github.com/user-attachments/assets/ebb85500-54c4-4984-b129-dac1ae4e1ef4" />
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false)](https://github.com/kittinan/spotify-github-profile)
