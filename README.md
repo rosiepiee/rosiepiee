@@ -1,9 +1,9 @@
 <img width="2044" height="222" alt="image" src="https://github.com/user-attachments/assets/6a79ba88-f82e-4692-a4c4-aac43dbf20d2" />
 
 
-$\color{#f4a6c1}{\textit{“Have no fear,}}$
+$\color{#f4a6c1}{\textit{“ Have no fear,}}$
 
-$\color{#f4a6c1}{\textit{Amy Rose is here!”}}$
+$\color{#f4a6c1}{\textit{Amy Rose is here! ”}}$
 
 
 
