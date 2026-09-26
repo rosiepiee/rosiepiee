@@ -5,7 +5,8 @@ $\color{#f4a6c1}{\textit{“ Have no fear,}}$
 
 $\color{#f4a6c1}{\textit{Amy Rose is here! ”}}$
 
-$\color{#f4a6c1}{\textit{♡ Rose / Rosie / Amy / Kin names ♡ }}$
+$\color{#f4a6c1}{\textit{♡ Rose / Rosie / Amy / Kin names ♡ }}$ <img width="60" height="60" alt="6834eded0cb08f3b9048b44983b90720" src="https://github.com/user-attachments/assets/7d14ce02-ab00-4fb4-9ac3-eef71c41accb" />
+
 
 
 
