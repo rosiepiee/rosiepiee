@@ -1,11 +1,10 @@
 <img width="2048" height="388" alt="tumblr_2128c09b245fb5b86d483b761a6b1d57_09af175c_2048" src="https://github.com/user-attachments/assets/43e2f5ba-e239-4412-9eac-1c548c69d72f" />
 
-
 $\color{#f4a6c1}{\textit{“ Have no fear,}}$
 
 $\color{#f4a6c1}{\textit{Amy Rose is here! ”}}$
 
-$\color{#f4a6c1}{\textit{♡ Rose / Rosie / Amy / Kin names ♡ }}$ <img width="60" height="60" alt="6834eded0cb08f3b9048b44983b90720" src="https://github.com/user-attachments/assets/7d14ce02-ab00-4fb4-9ac3-eef71c41accb" />
+$\color{#f4a6c1}{\textit{♡ Rose / Rosie / Amy / Kin names ♡ }}$ 
 
 
 
