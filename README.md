@@ -1,4 +1,4 @@
-<img width="2048" height="895" alt="image" src="https://github.com/user-attachments/assets/4c370685-36f4-4236-8db8-6564866a994c" />
+<img width="2048" height="283" alt="image" src="https://github.com/user-attachments/assets/6a79ba88-f82e-4692-a4c4-aac43dbf20d2" />
 
 
 $\color{#f4a6c1}{\textit{“Have no fear,}}$
@@ -6,7 +6,6 @@ $\color{#f4a6c1}{\textit{“Have no fear,}}$
 $\color{#f4a6c1}{\textit{Amy Rose is here!”}}$
 
 
-<img width="2048" height="283" alt="image" src="https://github.com/user-attachments/assets/6a79ba88-f82e-4692-a4c4-aac43dbf20d2" />
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=e23232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
