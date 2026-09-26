@@ -1,4 +1,6 @@
-<img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/02dc4ed9-2ef2-4b4e-b964-837eef82fa86" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/adc4d345-2d5a-4ece-b8a1-01f0e09ad65f" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/52a660fd-3f96-4744-a531-5ab5c08c7d2e" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/469ed1f1-b3d2-46e9-a512-97053218b6e5" />
+<img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/b5ff4c91-1de4-47d9-854f-7011a2bddc9a" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/6b567d41-c698-4098-9def-be1ce09dd444" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/26419c54-9e5f-4812-8544-b89f8be42ec3" />
+
+
 
 
 
@@ -16,12 +18,11 @@ $\color{#f4a6c1}{\textit{Amy Rose is here!}}$
 
 </div>
 
-<img width="1310" height="52" alt="image" src="https://github.com/user-attachments/assets/6de1bf10-ffbb-4553-831d-ea92c15912b8" />
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=e23232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img width="1310" height="52" alt="image" src="https://github.com/user-attachments/assets/bc0d534c-1ebe-4d27-8aa7-da1959fff733" />
 
 
+<img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/7dff0407-cde6-4421-8e0c-0302a97730a3" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/b11bc3f5-7679-4c72-abb5-f56406dac229" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/9e6a3eba-3518-4b86-ab8f-427f7fa874ae" />
 
-<img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/02dc4ed9-2ef2-4b4e-b964-837eef82fa86" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/adc4d345-2d5a-4ece-b8a1-01f0e09ad65f" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/52a660fd-3f96-4744-a531-5ab5c08c7d2e" /><img width="222" height="38" alt="image" src="https://github.com/user-attachments/assets/469ed1f1-b3d2-46e9-a512-97053218b6e5" />
+
