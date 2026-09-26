@@ -4,6 +4,9 @@ $\color{#f4a6c1}{\textit{“ Have no fear,}}$
 
 $\color{#f4a6c1}{\textit{Amy Rose is here! ”}}$
 
+$\color{#f4a6c1}{\textit{-----------------}}$
+
+
 $\color{#f4a6c1}{\textit{♡ Rose / Rosie / Amy / Kin names ♡ }}$ 
 
 
