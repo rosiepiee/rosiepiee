@@ -10,7 +10,7 @@ $\color{#f4a6c1}{\textit{-------------------}}$
 $\color{#f4a6c1}{\textit{♡ Rose / Rosie / Amy / Kin names ♡ }}$ 
 
 
-$\color{#f4a6c1}{\textit{♡ I prefer she/her pronouns.. sometimes he/him. ♡ }}$ 
+$\color{#f4a6c1}{\textit{♡ I prefer she/her pronouns. ♡ }}$ 
 
 $\color{#f4a6c1}{\textit{♡ I'm an adult!! So minors pls dni, thank you. ♡ }}$ 
 
