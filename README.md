@@ -7,7 +7,7 @@ $\color{#f4a6c1}{\textit{Amy Rose is here! ”}}$
 $\color{#f4a6c1}{\textit{-------------------}}$
 
 
-$\color{#f4a6c1}{\textit{♡ Rose / Rosie / Amy / Kin names ♡ }}$ 
+$\color{#f4a6c1}{\textit{♡ Rose / Rosie ♡ }}$ 
 
 
 $\color{#f4a6c1}{\textit{♡ I prefer she/her pronouns. ♡ }}$ 
