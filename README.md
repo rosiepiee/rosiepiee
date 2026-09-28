@@ -1,4 +1,5 @@
-<img width="2048" height="388" alt="tumblr_2128c09b245fb5b86d483b761a6b1d57_09af175c_2048" src="https://github.com/user-attachments/assets/43e2f5ba-e239-4412-9eac-1c548c69d72f" />
+<img width="941" height="74" alt="tumblr_a0cb65b4719020bed1a72f757fd8b795_670196ba_1280" src="https://github.com/user-attachments/assets/27f3484e-7edd-4f71-b003-9d005dd6ddc1" />
+
 
 $\color{#ADD8E6}{\textit{“ Sonic's the name,}}$
 
@@ -22,6 +23,6 @@ $\color{#ADD8E6}{\textit{-------------------}}$
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=e23232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
-<img width="2048" height="388" alt="tumblr_2128c09b245fb5b86d483b761a6b1d57_09af175c_2048" src="https://github.com/user-attachments/assets/43e2f5ba-e239-4412-9eac-1c548c69d72f" />
+<img width="941" height="74" alt="tumblr_a0cb65b4719020bed1a72f757fd8b795_670196ba_1280" src="https://github.com/user-attachments/assets/27f3484e-7edd-4f71-b003-9d005dd6ddc1" />
 
 
