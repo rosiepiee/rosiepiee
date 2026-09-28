@@ -3,7 +3,7 @@
 
 $\color{#ADD8E6}{\textit{“ Sonic's the name,}}$
 
-$\color{#ADD8E6}{\textit{“ Speed's my game! ”}}$
+$\color{#ADD8E6}{\textit{“ speed's my game! ”}}$
 
 $\color{#ADD8E6}{\textit{-------------------}}$
 
