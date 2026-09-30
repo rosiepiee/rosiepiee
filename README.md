@@ -15,7 +15,7 @@ $\color{#ADD8E6}{\textit{♡ I use she/he pronouns. ♡ }}$
 
 $\color{#ADD8E6}{\textit{♡ I'm an adult!! So minors pls dni, thank you. ♡ }}$ 
 
-$\color{#ADD8E6}{\textit{♡ I am very much TAKEN!! I love my partner so much ♡ }}$ 
+$\color{#ADD8E6}{\textit{♡ I am very much TAKEN!! I love my partner. ♡ }}$ 
 
 $\color{#ADD8E6}{\textit{-------------------}}$
 
