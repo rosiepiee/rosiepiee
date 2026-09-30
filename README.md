@@ -8,15 +8,18 @@ $\color{#ADD8E6}{\textit{“ speed's my game! ”}}$
 $\color{#ADD8E6}{\textit{-------------------}}$
 
 
-$\color{#ADD8E6}{\textit{♡ Rose / Rosie ♡ }}$ 
+$\color{#ADD8E6}{\textit{♡ Rose / Rosie / Sonic ♡ }}$ 
 
 
 $\color{#ADD8E6}{\textit{♡ I use she/he pronouns. ♡ }}$ 
 
 $\color{#ADD8E6}{\textit{♡ I'm an adult!! So minors pls dni, thank you. ♡ }}$ 
 
+$\color{#ADD8E6}{\textit{♡ Idgaf if you copy, I've seen it happen and I stopped caring lmao. Just a game. ♡ }}$ 
 
-$\color{#ADD8E6}{\textit{♡ I am TAKEN!! I love my partner so much! ♡ }}$ 
+$\color{#ADD8E6}{\textit{♡ I am not gonna be apart of anyone's drama, it's tiring and stupid, literally a pony game. ♡ }}$ 
+
+$\color{#ADD8E6}{\textit{♡ I am very much TAKEN!! I love my partner so much ♡ }}$ 
 
 $\color{#ADD8E6}{\textit{-------------------}}$
 
