@@ -8,7 +8,7 @@ $\color{#ADD8E6}{\textit{“ speed's my game! ”}}$
 $\color{#ADD8E6}{\textit{-------------------}}$
 
 
-$\color{#ADD8E6}{\textit{♡ Rose / Rosie / Sonic ♡ }}$ 
+$\color{#ADD8E6}{\textit{♡ Rose / Rosie ♡ }}$ 
 
 
 $\color{#ADD8E6}{\textit{♡ I use she/he pronouns. ♡ }}$ 
