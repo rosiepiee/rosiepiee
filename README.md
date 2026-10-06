@@ -1,9 +1,9 @@
 <img width="941" height="74" alt="tumblr_a0cb65b4719020bed1a72f757fd8b795_670196ba_1280" src="https://github.com/user-attachments/assets/27f3484e-7edd-4f71-b003-9d005dd6ddc1" />
 
 
-$\color{#BDEBFF}{\textit{“ Sonic's the name,}}$
+$\color{#9DDEFF}{\textit{“ Sonic's the name,}}$
 
-$\color{#BDEBFF}{\textit{“ speed's my game! ”}}$
+$\color{#9DDEFF}{\textit{“ speed's my game! ”}}$
 
 $\color{#9DDEFF}{\textit{────・♡・────
 }}$
