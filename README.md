@@ -4,9 +4,9 @@
 
 $\color{#9DDEFF}{\textit{“ Sonic's the name,}}$
 
-$\color{#9DDEFF}{\textit{“ speed's my game! ”}}$
+$\color{#7ACDFF}{\textit{“ speed's my game! ”}}$
 
-$\color{#9DDEFF}{\textit{────・♡・────
+$\color{#7ACDFF}{\textit{────・♡・────
 }}$
 
 
