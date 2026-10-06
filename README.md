@@ -5,7 +5,8 @@ $\color{#ADD8E6}{\textit{“ Sonic's the name,}}$
 
 $\color{#ADD8E6}{\textit{“ speed's my game! ”}}$
 
-$\color{#ADD8E6}{\textit{-------------------}}$
+$\color{#ADD8E6}{\textit{────・♡・────
+}}$
 
 
 $\color{#ADD8E6}{\textit{♡ Rose / Rosie ♡ }}$ 
@@ -17,7 +18,7 @@ $\color{#ADD8E6}{\textit{♡ I'm an adult!! And basic DNI. ♡ }}$
 
 $\color{#ADD8E6}{\textit{♡ I am very much TAKEN!! I love my partner. ♡ }}$ 
 
-$\color{#ADD8E6}{\textit{-------------------}}$
+$\color{#ADD8E6}{\textit{────・♡・────}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=e23232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
