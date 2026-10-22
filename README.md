@@ -12,7 +12,8 @@ $\color{#7ACDFF}{\textit{ speed's my game! ❞}}$
 
 
 
-$\color{#9DDEFF}{\textit{♡ Rose / Rosie / Sonic ♡ }}$ 
+$\color{#9DDEFF}{\textit{♡ 𝐑𝐨𝐬𝐞 / 𝐑𝐨𝐬𝐢𝐞 / 𝐒𝐨𝐧𝐢𝐜
+ ♡ }}$ 
 
 
 $\color{#7ACDFF}{\textit{♡ I use she/he pronouns. ♡ }}$ 
