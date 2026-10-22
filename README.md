@@ -10,7 +10,7 @@ $\color{#7ACDFF}{\textit{────・♡・────
 }}$
 
 
-$\color{#9DDEFF}{\textit{♡ Rose / Rosie ♡ }}$ 
+$\color{#9DDEFF}{\textit{♡ Rose / Rosie / Sonic ♡ }}$ 
 
 
 $\color{#7ACDFF}{\textit{♡ I use she/he pronouns. ♡ }}$ 
