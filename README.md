@@ -4,9 +4,11 @@
 
 
 
-$\color{#9DDEFF}{\textit{❝ Sonic's the name,}}$
+$\color{#9DDEFF}{\textit{❝ 𝙎𝙤𝙣𝙞𝙘'𝙨 𝙩𝙝𝙚 𝙣𝙖𝙢𝙚
+,}}$
 
-$\color{#7ACDFF}{\textit{ speed's my game! ❞}}$
+$\color{#7ACDFF}{\textit{ 𝙨𝙥𝙚𝙚𝙙'𝙨 𝙢𝙮 𝙜𝙖𝙢𝙚
+! ❞}}$
 
 <img width="700" height="11" alt="BDSNV67HDDOS7A64V4S4EZCRQCCCDLXW" src="https://github.com/user-attachments/assets/3df0716e-8906-470b-83b1-0a62582cb7c3" />
 
