@@ -8,7 +8,7 @@ $\color{#9DDEFF}{\textit{“ Sonic's the name,}}$
 
 $\color{#7ACDFF}{\textit{“ speed's my game! ”}}$
 
-<img width="700" height="11" alt="BDSNV67HDDOS7A64V4S4EZCRQCCCDLXW" src="https://github.com/user-attachments/assets/3df0716e-8906-470b-83b1-0a62582cb7c3" />
+<img width="620" height="23" alt="GVDTM4VGUDEAEEJZUXMBWK672VN7SEL7" src="https://github.com/user-attachments/assets/18f75097-575c-4b1c-bf99-22264bf0cfba" />
 
 
 
@@ -21,7 +21,7 @@ $\color{#7ACDFF}{\textit{♡ I'm an adult!! And basic DNI. ♡ }}$
 
 $\color{#58BDF5}{\textit{♡ I am TAKEN!! I love my partner. ♡ }}$ 
 
-<img width="550" height="10" alt="JTEFPU3HRHHKAMV2QMW6E26Y2DKGOYHO" src="https://github.com/user-attachments/assets/d3c93fa0-7895-4787-af35-a6c9671a39d0" />
+<img width="700" height="11" alt="BDSNV67HDDOS7A64V4S4EZCRQCCCDLXW" src="https://github.com/user-attachments/assets/3df0716e-8906-470b-83b1-0a62582cb7c3" />
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=e23232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
