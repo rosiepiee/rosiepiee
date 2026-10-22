@@ -17,7 +17,7 @@ $\color{#7ACDFF}{\textit{ 𝙨𝙥𝙚𝙚𝙙'𝙨 𝙢𝙮 𝙜𝙖𝙢𝙚
 $\color{#9DDEFF}{\textit{♡ 𝙍𝙤𝙨𝙚 / 𝙍𝙤𝙨𝙞𝙚 / 𝙎𝙤𝙣𝙞𝙘 ♡ }}$ 
 
 
-$\color{#7ACDFF}{\textit{♡ 𝙎𝙝𝙚 / 𝙃𝙚𝙧, 𝙃𝙚 / 𝙃𝙞𝙢 ♡ }}$ 
+$\color{#7ACDFF}{\textit{♡ 𝙎𝙝𝙚 / 𝙃𝙚𝙧 , 𝙃𝙚 / 𝙃𝙞𝙢 ♡ }}$ 
 
 $\color{#7ACDFF}{\textit{♡ 𝘼𝙙𝙪𝙡𝙩. 𝘽𝙖𝙨𝙞𝙘 𝘿𝙉𝙄 𝙖𝙥𝙥𝙡𝙞𝙚𝙨. ♡ }}$ 
 
