@@ -19,7 +19,7 @@ $\color{#7ACDFF}{\textit{♡ I use she/he pronouns. ♡ }}$
 
 $\color{#7ACDFF}{\textit{♡ I'm an adult!! And basic DNI. ♡ }}$ 
 
-$\color{#58BDF5}{\textit{♡ I am very much TAKEN!! I love my partner. ♡ }}$ 
+$\color{#58BDF5}{\textit{♡ I am TAKEN!! I love my partner. ♡ }}$ 
 
 $\color{#58BDF5}{\textit{────・♡・────}}$
 
