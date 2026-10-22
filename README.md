@@ -28,3 +28,4 @@ $\color{#58BDF5}{\textit{────・♡・────}}$
 <img width="941" height="74" alt="tumblr_a0cb65b4719020bed1a72f757fd8b795_670196ba_1280" src="https://github.com/user-attachments/assets/6f68fbd1-0e76-4f6d-b9a6-390f4ffa28a5" />
 
 <img width="600" height="80" alt="IMG_6736" src="https://github.com/user-attachments/assets/a29cc55b-04ce-4e32-a5a2-562bec3e51de" />
+<img width="600" height="80" alt="IMG_6742" src="https://github.com/user-attachments/assets/3bada1c9-5a5b-42f0-b8b4-8c00044b7021" />
