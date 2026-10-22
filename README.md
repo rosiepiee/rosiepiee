@@ -26,6 +26,8 @@ $\color{#58BDF5}{\textit{────・♡・────}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=e23232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
+$\color{#58BDF5}{\textit{────・♡・────}}$
+
 
 <img width="600" height="80" alt="IMG_6736" src="https://github.com/user-attachments/assets/a29cc55b-04ce-4e32-a5a2-562bec3e51de" />
 <img width="600" height="80" alt="IMG_6742" src="https://github.com/user-attachments/assets/3bada1c9-5a5b-42f0-b8b4-8c00044b7021" />
