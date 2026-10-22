@@ -21,7 +21,7 @@ $\color{#7ACDFF}{\textit{♡ I'm an adult!! And basic DNI. ♡ }}$
 
 $\color{#58BDF5}{\textit{♡ I am TAKEN!! I love my partner. ♡ }}$ 
 
-<img width="464" height="18" alt="FPN3DP25VJD3RNZPWKNCSSSX6BNQYAVZ" src="https://github.com/user-attachments/assets/f6c7db8a-6b40-4afb-9f74-36cc761ed6d2" />
+<img width="600" height="10" alt="EFYN5DV2G6HNUZMFK5KHU3A4IXW2PVFU" src="https://github.com/user-attachments/assets/86c01986-b103-4287-9c3a-7fca14dd0c23" />
 
 
 $\color{#58BDF5}{\textit{────・♡・────}}$
