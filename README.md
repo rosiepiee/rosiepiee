@@ -8,8 +8,8 @@ $\color{#9DDEFF}{\textit{“ Sonic's the name,}}$
 
 $\color{#7ACDFF}{\textit{“ speed's my game! ”}}$
 
-$\color{#7ACDFF}{\textit{────・♡・────
-}}$
+<img width="550" height="10" alt="JTEFPU3HRHHKAMV2QMW6E26Y2DKGOYHO" src="https://github.com/user-attachments/assets/d3c93fa0-7895-4787-af35-a6c9671a39d0" />
+
 
 
 $\color{#9DDEFF}{\textit{♡ Rose / Rosie / Sonic ♡ }}$ 
@@ -22,9 +22,6 @@ $\color{#7ACDFF}{\textit{♡ I'm an adult!! And basic DNI. ♡ }}$
 $\color{#58BDF5}{\textit{♡ I am TAKEN!! I love my partner. ♡ }}$ 
 
 <img width="550" height="10" alt="JTEFPU3HRHHKAMV2QMW6E26Y2DKGOYHO" src="https://github.com/user-attachments/assets/d3c93fa0-7895-4787-af35-a6c9671a39d0" />
-
-
-$\color{#58BDF5}{\textit{────・♡・────}}$
 
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=e23232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
