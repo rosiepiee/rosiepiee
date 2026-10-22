@@ -8,7 +8,7 @@ $\color{#9DDEFF}{\textit{“ Sonic's the name,}}$
 
 $\color{#7ACDFF}{\textit{“ speed's my game! ”}}$
 
-<img width="550" height="10" alt="JTEFPU3HRHHKAMV2QMW6E26Y2DKGOYHO" src="https://github.com/user-attachments/assets/d3c93fa0-7895-4787-af35-a6c9671a39d0" />
+<img width="99" height="56" alt="tumblr_619a67b927e0bbff5fb33796bebfbeea_7a4c21bc_100" src="https://github.com/user-attachments/assets/930f4ec7-5e3a-4bf4-9cfb-e508aba40a39" />
 
 
 
