@@ -39,7 +39,6 @@ $\color{#58BDF5}{\textit{────・♡・────}}$
 
 
 
-<img width="600" height="80" alt="IMG_6736" src="https://github.com/user-attachments/assets/a29cc55b-04ce-4e32-a5a2-562bec3e51de" />
 <img width="600" height="80" alt="IMG_6742" src="https://github.com/user-attachments/assets/3bada1c9-5a5b-42f0-b8b4-8c00044b7021" />
 
 </div>
