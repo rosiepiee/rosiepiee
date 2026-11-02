@@ -38,6 +38,6 @@ $\color{#58BDF5}{\textit{────・♡・────}}$
 
 
 
-<img width="600" height="80" alt="IMG_6742" src="https://github.com/user-attachments/assets/3bada1c9-5a5b-42f0-b8b4-8c00044b7021" />
+<img width="600" height="80" alt="IMG_6858" src="https://github.com/user-attachments/assets/0758ec72-b655-4824-9c9e-078530714dca" />
 
 </div>
