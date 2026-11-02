@@ -29,7 +29,7 @@ $\color{#D991B6}{\textit{♡ 𝙏𝘼𝙆𝙀𝙉. 𝙄 𝙡𝙤𝙫𝙚 𝙢�
 
 $\color{#D991B6}{\textit{────・♡・────}}$
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=e23232&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=315phdhsse2yrsg5tg4hlptm77je&cover_image=true&theme=novatorem&show_offline=false&background_color=7a86e1&interchange=false&profanity=false&bar_color=ffa8e4&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 $\color{#D991B6}{\textit{────・♡・────}}$
 
