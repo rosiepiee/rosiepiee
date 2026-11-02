@@ -1,27 +1,27 @@
 <div align="center">
 
-<img width="736" height="245" alt="Untitled282_20261022122946" src="https://github.com/user-attachments/assets/3f71740e-a477-4522-ab62-e8b1ddeccd7d" />
+<img width="736" height="245" alt="Untitled282_20261102125647" src="https://github.com/user-attachments/assets/6984f82e-060f-4652-9a46-2b4d3e093f58" />
 
 
 
-$\color{#9DDEFF}{\textit{❝ 𝙎𝙤𝙣𝙞𝙘'𝙨 𝙩𝙝𝙚 𝙣𝙖𝙢𝙚
+$\color{#fff5fa}{\textit{❝ 𝙃𝙖𝙫𝙚 𝙣𝙤 𝙛𝙚𝙖𝙧
 ,}}$
 
-$\color{#7ACDFF}{\textit{ 𝙨𝙥𝙚𝙚𝙙'𝙨 𝙢𝙮 𝙜𝙖𝙢𝙚
+$\color{#ffa8d4}{\textit{ 𝘼𝙢𝙮 𝙍𝙤𝙨𝙚 𝙞𝙨 𝙝𝙚𝙧𝙚
 ! ❞}}$
 
 <img width="700" height="11" alt="BDSNV67HDDOS7A64V4S4EZCRQCCCDLXW" src="https://github.com/user-attachments/assets/3df0716e-8906-470b-83b1-0a62582cb7c3" />
 
 
 
-$\color{#9DDEFF}{\textit{♡ 𝙍𝙤𝙨𝙚 / 𝙍𝙤𝙨𝙞𝙚 ♡ }}$ 
+$\color{#ff6bb5}{\textit{♡ 𝙍𝙤𝙨𝙚 / 𝙍𝙤𝙨𝙞𝙚 ♡ }}$ 
 
 
-$\color{#7ACDFF}{\textit{♡ 𝙎𝙝𝙚 / 𝙃𝙚𝙧 , 𝙃𝙚 / 𝙃𝙞𝙢 ♡ }}$ 
+$\color{#ff57ab}{\textit{♡ 𝙎𝙝𝙚 / 𝙃𝙚𝙧 , 𝙃𝙚 / 𝙃𝙞𝙢 ♡ }}$ 
 
-$\color{#7ACDFF}{\textit{♡ 𝘼𝙙𝙪𝙡𝙩. 𝘽𝙖𝙨𝙞𝙘 𝘿𝙉𝙄 𝙖𝙥𝙥𝙡𝙞𝙚𝙨. ♡ }}$ 
+$\color{#ff3399}{\textit{♡ 𝘼𝙙𝙪𝙡𝙩. 𝘽𝙖𝙨𝙞𝙘 𝘿𝙉𝙄 𝙖𝙥𝙥𝙡𝙞𝙚𝙨. ♡ }}$ 
 
-$\color{#58BDF5}{\textit{♡ 𝙏𝘼𝙆𝙀𝙉. 𝙄 𝙡𝙤𝙫𝙚 𝙢𝙮 𝙥𝙖𝙧𝙩𝙣𝙚𝙧. ♡ }}$ 
+$\color{#ff1f8f}{\textit{♡ 𝙏𝘼𝙆𝙀𝙉. 𝙄 𝙡𝙤𝙫𝙚 𝙢𝙮 𝙥𝙖𝙧𝙩𝙣𝙚𝙧. ♡ }}$ 
 
 <img width="700" height="11" alt="BDSNV67HDDOS7A64V4S4EZCRQCCCDLXW" src="https://github.com/user-attachments/assets/3df0716e-8906-470b-83b1-0a62582cb7c3" />
 
@@ -30,7 +30,6 @@ $\color{#58BDF5}{\textit{♡ 𝙏𝘼𝙆𝙀𝙉. 𝙄 𝙡𝙤𝙫𝙚 𝙢�
 
 $\color{#58BDF5}{\textit{────・♡・────}}$
 
-<img width="99" height="56" alt="tumblr_fea15188c928284e1748cc8fe6951189_45c5d690_100" src="https://github.com/user-attachments/assets/43ee587d-16ba-4d01-b78b-706887fd5861" /><img width="99" height="56" alt="tumblr_619a67b927e0bbff5fb33796bebfbeea_7a4c21bc_100" src="https://github.com/user-attachments/assets/5d97bd28-9a2b-42fe-b9ec-373112608615" /><img width="99" height="56" alt="tumblr_b24387c492733482ca6074e2996c5e6a_4c43f257_100" src="https://github.com/user-attachments/assets/d28bea63-354b-4fa9-9f04-fee9b8611684" /><img width="99" height="56" alt="tumblr_4f81ef290b83bc84d6e1a682dbd40681_2dff9b9a_100" src="https://github.com/user-attachments/assets/1fb3ee2e-4a18-4049-b643-4547abfd32ce" />
 
 
 $\color{#58BDF5}{\textit{────・♡・────}}$
