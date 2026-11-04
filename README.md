@@ -16,7 +16,7 @@ $\color{#F0C5DA}{\textit{ 𝘼𝙢𝙮 𝙍𝙤𝙨𝙚 𝙞𝙨 𝙝𝙚𝙧�
 
 
 
-$\color{#F9E0EC}{\textit{♡ 𝙍𝙤𝙨𝙚 / 𝙍𝙤𝙨𝙞𝙚 / Amy ♡ }}$ 
+$\color{#F9E0EC}{\textit{♡ 𝙍𝙤𝙨𝙚 / 𝙍𝙤𝙨𝙞𝙚 / 𝘼𝙢𝙮 ♡ }}$ 
 
 
 $\color{#F0C5DA}{\textit{♡ 𝙎𝙝𝙚 / 𝙃𝙚𝙧 , 𝙃𝙚 / 𝙃𝙞𝙢 ♡ }}$ 
